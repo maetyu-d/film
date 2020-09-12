@@ -35,10 +35,12 @@ How do your return to a place that only exists in your mind? ‘My Love Awaits M
 ----------
 ----------
 
-Soviet-Era and Eastern European Apocalyptic Visions
+# Soviet-Era and Eastern European Apocalyptic Visions
 
-On The Silver Globe (1988)
-http://exmilitai.re/film.html 
+### [On The Silver Globe (1988)](http://exmilitai.re/film.html) 
+Genre: Science Fiction
+Duration: 157 mins
+Language: Polish
 
 - Directed by: Andrzej Żuławski
 
@@ -46,8 +48,10 @@ Wandering cosmonauts, lunar escape, and the return voyage. The serialized attemp
 
 -----------
 
-O-bi, O-ba, The End of Civilization (1985)
-http://exmilitai.re/film.html
+### [O-bi, O-ba, The End of Civilization (1985)](http://exmilitai.re/film.html)
+Genre: Science Fiction
+Duration: 85 mins
+Language: Polish
 
 - directed by: Piotr Szulkin
 
@@ -55,17 +59,22 @@ Humanity waits in a fallout shelter washed in blue fluorescence and a self-decep
 
 ----------
 
-Letters from a Dead Man (1986)
-http://exmilitai.re/film.html
+### [Letters from a Dead Man (1986)](http://exmilitai.re/film.html)
+Genre: Science Fiction
+Duration: 88 mins
+Language: Russian
 
-- directed by: Konstantin Lopushanskiy
+- director: Konstantin Lopushanskiy
+- music: Nikolai Pokoptse
 
 A future breathing through gas masks, thrashing sandstorms and communicating to nothing: all the contingent results of a nuclear catastrophe (Chernobyl). A nobel prize physicist dwells in a fallout shelter, oftentimes writing to a dead son while other times sitting around a table of expiring humanists, contemplating the vacant present that once was. The radioactive outside is slowly intruding inwards - the wasteland grows - as the looming threat of an uninhabitable planet is empirically becoming true. Nihilism settles in, locates a host within humanity, and hardwires a waning civilization which contemplates all of history as one prolonged suicide. The extinction of the species will be marked by migraines followed by amnesia, resultant symptoms of the end of humanity, but also by a singularly accidental twilight - genetic and or bacterial - groundless by design.
 
 -----------
 
-Stalker (1979)
-http://exmilitai.re/film.html
+### [Stalker (1979)](http://exmilitai.re/film.html)
+Genre: Science Fiction
+Duration: 161 mins
+Language: Russian
 
 - directed by: Andrej Tarkovsky
 
@@ -73,8 +82,7 @@ Sepia-toned reality, industrial landscapes, rust-covered train tracks, residues 
 
 -------------
 
-Kin-Dza-Dza! (1986)
-https://youtu.be/EYHv8eJrW2Y
+### [Kin-Dza-Dza! (1986)](https://youtu.be/EYHv8eJrW2Y)
 
 - directed by: Georgiy Daneliya
 
