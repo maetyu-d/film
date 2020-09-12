@@ -35,7 +35,7 @@ How do your return to a place that only exists in your mind? ‘My Love Awaits M
 ----------
 ----------
 
-# Soviet-Era and Eastern European Apocalyptic Visions
+# Soviet-Era and Eastern European Sci-Fi
 
 ### [On The Silver Globe (1988)](http://exmilitai.re/film.html) 
 Genre: Science Fiction
@@ -87,3 +87,10 @@ Sepia-toned reality, industrial landscapes, rust-covered train tracks, residues 
 - directed by: Georgiy Daneliya
 
 Kin-dza-dza! is a 1986 Soviet sci-fi dystopian black comedy cult film released by the Mosfilm studio and directed by Georgiy Daneliya. The story takes place on the desert planet "Pluke” in the "Kin-dza-dza” galaxy, where two Soviet humans previously unknown to each other ("Uncle Vova”, a gruff construction foreman from Moscow, and "The Fiddler”, a student from Georgia) are stranded due to an accidental encounter with an alien teleportation device. The movie describes their long quest to find a way back home.
+
+----------
+----------
+
+# African Cinema
+
+
