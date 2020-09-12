@@ -5,9 +5,9 @@
 # Palestinian Cinema
 
 ### [Little Wars (1982)](https://vimeo.com/447295097)
-Genre: War/Drama
-Duration: 112 mins
-Language: Arabic
+* Genre: War/Drama
+* Duration: 112 mins
+* Language: Arabic
 
 - Starring: Soraya Khoury, Nabil Ismail, Roger Hawa, Rifaat Tarabay and Rida Khoury
 - Written, produced and directed by Maroun Bagdadi
@@ -21,9 +21,9 @@ Little Wars tells the story of Lebanon’s civil war in 1975 through three chara
 -----------
 
 ### [My Love Awaits Me by the Sea (2013)](https://vimeo.com/442694097)
-Genre: Documentary
-Duration: 80 mins
-Language: Arabic
+* Genre: Documentary
+* Duration: 80 mins
+* Language: Arabic
 
 - Nael Kanj, Hasan Hourani and Mohammad Reda Al-Haj Ahmad
 - Directed by: Mais Darwazah
@@ -38,9 +38,9 @@ How do your return to a place that only exists in your mind? ‘My Love Awaits M
 # Soviet-Era and Eastern European Sci-Fi
 
 ### [On The Silver Globe (1988)](http://exmilitai.re/film.html) 
-Genre: Science Fiction
-Duration: 157 mins
-Language: Polish
+* Genre: Science Fiction
+* Duration: 157 mins
+* Language: Polish
 
 - Directed by: Andrzej Żuławski
 
@@ -49,9 +49,9 @@ Wandering cosmonauts, lunar escape, and the return voyage. The serialized attemp
 -----------
 
 ### [O-bi, O-ba, The End of Civilization (1985)](http://exmilitai.re/film.html)
-Genre: Science Fiction
-Duration: 85 mins
-Language: Polish
+* Genre: Science Fiction
+* Duration: 85 mins
+* Language: Polish
 
 - directed by: Piotr Szulkin
 
@@ -60,9 +60,9 @@ Humanity waits in a fallout shelter washed in blue fluorescence and a self-decep
 ----------
 
 ### [Letters from a Dead Man (1986)](http://exmilitai.re/film.html)
-Genre: Science Fiction
-Duration: 88 mins
-Language: Russian
+* Genre: Science Fiction
+* Duration: 88 mins
+* Language: Russian
 
 - director: Konstantin Lopushanskiy
 - music: Nikolai Pokoptse
@@ -72,9 +72,9 @@ A future breathing through gas masks, thrashing sandstorms and communicating to 
 -----------
 
 ### [Stalker (1979)](http://exmilitai.re/film.html)
-Genre: Science Fiction
-Duration: 161 mins
-Language: Russian
+* Genre: Science Fiction
+* Duration: 161 mins
+* Language: Russian
 
 - directed by: Andrej Tarkovsky
 
@@ -83,6 +83,9 @@ Sepia-toned reality, industrial landscapes, rust-covered train tracks, residues 
 -------------
 
 ### [Kin-Dza-Dza! (1986)](https://youtu.be/EYHv8eJrW2Y)
+* Genre: Science Fiction/Comedy
+* Duration: 135 mins
+* Language: Russian/Georgian
 
 - directed by: Georgiy Daneliya
 
@@ -94,9 +97,9 @@ Kin-dza-dza! is a 1986 Soviet sci-fi dystopian black comedy cult film released b
 # African Cinema
 
 ### [Afronauts (2014)](https://www.youtube.com/watch?v=lb3pu5jXWHU)
-Genre: Science Fiction
-Duration: 14 mins
-Language: English
+* Genre: Science Fiction
+* Duration: 14 mins
+* Language: English
 
 - written and directed: Nuotama Bodomo (as Frances Bodomo)
 - cinematography and edited: Pep Bonet
@@ -107,9 +110,9 @@ On the 16th July 1969, America prepares to launch Apollo 11. Thousands of kilome
 ---------
 
 ### [We are Tired (2020)](https://vimeo.com/447901846)
-Genre: Documentary
-Duration: 5 mins
-Language: English
+* Genre: Documentary
+* Duration: 5 mins
+* Language: English
 
 - written and directed: Tobi Akinde
 
