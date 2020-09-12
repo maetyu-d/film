@@ -9,7 +9,6 @@
 * Duration: 112 mins
 * Language: Arabic
 
-- Starring: Soraya Khoury, Nabil Ismail, Roger Hawa, Rifaat Tarabay and Rida Khoury
 - Written, produced and directed by Maroun Bagdadi
 - Dialogue: Kamal Kassar
 - Cinematography: Edward Lachman and Heiner Hoelscher
@@ -25,7 +24,6 @@ Little Wars tells the story of Lebanon’s civil war in 1975 through three chara
 * Duration: 80 mins
 * Language: Arabic
 
-- Nael Kanj, Hasan Hourani and Mohammad Reda Al-Haj Ahmad
 - Directed by: Mais Darwazah
 - Produced by: Rula Nasser
 - Music: Cynthia Zaven
