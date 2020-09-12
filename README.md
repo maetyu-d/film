@@ -1,4 +1,4 @@
-Thanks to: Culture Art Society, Exmilitai, etc.
+Thanks to: Culture Art Society, Exmilitai, the Film Space group, etc.
 
 ---------
 ---------
