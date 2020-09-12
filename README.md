@@ -273,9 +273,11 @@ A 1992 Burundian comedy film directed by Léonce Ngabo. Gito is a Burundian stud
 
 ---------------
 
-Le wazzou polygame (1970)	
+Le Wazzou Polygame (1970)	
 https://www.youtube.com/watch?v=KqxDLdVFwXs
 Oumarou Ganda
+
+Le Wazzou polygame (also known as Polygamic Wazzou or The Polygamist's Morale) is a 1971 Nigerien/French film about polygamy directed by and starring Oumarou Ganda. It was produced by Argos Films in France and won the Grand Prize at the 1972 Panafrican Film and Television Festival of Ouagadougou; the first official winner of that festival.
 
 ----------------
 
@@ -283,11 +285,15 @@ Toula ou le génie des eaux (1973)
 https://www.youtube.com/watch?v=KpXz7pWXGRE
 Moustapha Alassane
 
+The gods have declared the drought of the country. There seems to be no hope. A holy man summoned by the king requires the sacrifice of a young woman to put an end to their anger. A young man in love decides to go in search of water to save the girl from a tragic end, but when he returns with good news it's too late: the genie had his satisfaction and Toula has already disappeared in the holy swamp.
+
 ----------------
 
-Shaki (1972)	
+Shaki (1973)	
 https://www.youtube.com/watch?v=2m2DcK-uKx8
 Moustapha Alassane
+
+Alassane considers the mingling of traditions during the coronation of the new Shaki king of the Oyo state of western Nigeria.
 
 -----------------
 
@@ -295,11 +301,15 @@ Muna Moto - The Child of Another (1975)
 https://www.youtube.com/watch?v=zgJNpvBII9k&t=1252s
 Jean Dikongue Pipa	
 
+Heralded as a classic social realist African masterpiece, and an African Romeo and Juliet tale, Muna Moto tells the story of Ngando and Ndomé. Although they are deeply in love, Ngando cannot afford the traditional dowry to marry his now pregnant Ndomé. Against his better judgment, he asks his childless uncle (despite four wives) for help. Soon, a convenient marriage is arranged, but not to the liking of anyone.
+
 -----------------
 
 Rattlesnake (1995)	
 https://www.youtube.com/results?search_query=amaka+igwe+rattlesnake
 Amaka Igwe
+
+Ahanna Okolo (Snake) is drawn into a web of organised crime, gang rivalry, passion when unforseen circumstances change the course of his otherwise happy childhood.
 
 ------------------
 	
@@ -307,11 +317,15 @@ Ndeysaan - The Price of Forgiveness (2002)
 https://www.youtube.com/watch?v=_eqpwNEXEzs
 Mansour Sora Wade
 
+Mythical story about a fishing village on the south coast of Senegal. Two men in the village are both in love with the same beautiful girl.
+
 ----------------
 
 Karmen Gei (2001)	
 https://www.youtube.com/watch?v=-kRRZO_Zgl8
 Joseph Gaï Ramaka
+
+The story of tempestuous Carmen, first told in a short story by Prosper Merimee and made famous in an opera by Georges Bizet, gets a new and striking modern-dress adaptation in this provocative drama with music. Karmen Gei (Jeinaba Diop Gai) is an inmate in a women's prison in Senegal; lusty, impulsive, and looking out for herself at all times, Karmen's uninhibited dancing and sensual demeanor excites the Sapphic passions of Angelique (Stephanie Biddle), the prison's warden, who allows herself to be seduced by the wanton Karmen. Once Angelique falls asleep, Karmen sees the coast is clear and escapes to town, where she is caught by military policeman Col. Lamine Diop (Magaye Adama Niang) after insulting factotums of the nation's military leadership. However, Diop proves no match for Karmen's seductive charms, and after having her way with him, she once again escapes and Diop finds himself behind bars. Karmen arranges for Diop's escape, but it isn't long before he realizes she is using him as a plaything and has little respect for him as a man; however, by this time he's too deeply addicted to Karmen's passions to turn away. While inspired in part by Bizet's opera, Karmen Gai boats an all-new score by David Murray, Julien Jouga, and Doudou Ndiaye Rose that draws on elements of pop, jazz, and Afro-pop for its original themes.
 
 --------------
 
@@ -319,11 +333,15 @@ Il va pleuvoir sur Conakry - Clouds over Conakry (2007)
 https://www.youtube.com/watch?v=0QYWPXL-kww
 Cheik Fantamady Camara	
 
+BB works as a political cartoonist at a liberal newspaper and is in love with the boss' lovely, talented computer scientist daughter, Kesso. But his choice meets with stiff opposition from his strict Muslim father Karamako, who is the guardian of the ancestral tradition of their village as well as imam of Conakry. Karamako's dream inspired insistence that BB go to Saudi Arabia to study to become an imam, against the young man's wishes, further complicates the relationship, especially when Kesso becomes pregnant with BB's child.
+
 ------------------
 
-Mossane	Senegal	(1996)	
+Mossane (1996)	
 https://www.youtube.com/watch?v=3IpGc_HqRZw
 Safi Faye
+
+Mossane is a beautiful 14-year-old girl who has just reached marriageable age in a village in Senegal. She has many suitors, including a simple-minded farmer's son who plans to drag her away. Even her own brother Ngor is in love with her. However she is in love with Fara, a poor student who has returned to the village, while the university is on strike. At birth, she had been promised in marriage to Diogoye, who went away to work in France. Diogoye, who supplied her parents with many things over the years, has now sent a dowry, and asked that she be married to him in the village in his absence; she would then be sent to France.
 
 ----------------
 
