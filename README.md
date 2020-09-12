@@ -815,13 +815,50 @@ The Salesman (2016)
 https://www.youtube.com/watch?v=hF0QU7jaMug
 Asghar Farhadi
 
------------
+--------------
+--------------
+
+Mic'd Bodies
+
+[Robert Altman] tried to replicate natural conversational sounds, even with large casts, by wiring hidden microphones to actors, then recording them talking over each other with multiple soundtracks. During the filming, he wore a headset to ensure that important dialogue could be heard, without emphasizing it. This produced a "dense audio experience" for viewers, allowing them to hear multiple scraps of dialogue, as if they were listening in on various private conversations. Altman recognized that although large casts hurt a film commercially, "I like to see a lot of stuff going on." Altman first used overlapping soundtracks in MASH (1970), a sound technique which movie author Michael Barson describes as "a breathtaking innovation at the time." He developed it, Altman said, to force viewers to pay attention and become engaged in the film as if they were an active participant.
+
+McCabe and Mrs. Miller (1971)
+youtube.com/watch?v=LmFMpg_fgIg
+Robert Altman
+
+Nashville (1975)
+https://www.amazon.co.uk/Nashville-Henry-Gibson/dp/B00I9KUN0K
+https://itunes.apple.com/gb/movie/id366474905
+(small cost to rent)
+Robert Altman
+
+Edward Yang’s That Day, on the Beach (1983) [see 00:15:50] was one of the first New Cinema films to pursuit ‘sonic realism’ in and via  postsynching. Sound lead Duu-Chih Tu first asked female lead Sylvia Chang to dub the subtle sounds of “swallowing saliva, opening the mouth, and breathing” then added room tone/ambience/noise to create “a realistic sense of space” through sound. Tu considered Yang’s subsequent The Terrorizers (1986) to be the high point of postsynching (i.e. sound after filming).
+
+A shift to the use of sync-sound recording (i.e. sound during filming) followed, started by Hou Hsiao-Hsien’s A City of Sadness (1989); a production recorded in mono but the first Taiwanese feature film to adopt sync-sound recording. Hou then gave the recording equipment to Tu and his precursor of the 3H Sound Studio - which was used in Yang’s A Brighter Summer Day (1991).
+
+That Day, on the Beach (1983)
+Edward Yang
+
+A City of Sadness (1989)
+https://youtu.be/Aolv8k99ZOU
+Hou Hsiao-Hsien
+
+A Brighter Summer Day (1991)
+https://www.youtube.com/watch?v=0kMR6hlAvlk
+Edward Yang
+
+Other films by Edward Yang:
+
+Mahjong aka Couples (1996)
+https://www.youtube.com/watch?v=hYQf1k1ZJz4
+
+Yi Yi (2000)
+https://youtu.be/U089cG2BqR8
+
+--------------
 
 Other
 
 The Color of Pomegranates (1969)
 https://www.youtube.com/watch?v=26tEfblGH5I
-
-
-
 
