@@ -245,11 +245,15 @@ Pumzi (2009)
 https://vimeo.com/46891859
 Wanuri Kahiu
 
+Pumzi is a Kenyan science-fiction short film written and directed by Wanuri Kahiu. It was screened at the 2010 Sundance Film Festival as part of its New African Cinema program.
+
 --------------
 	
 Angano... Angano: Tales from Madagascar (1989)	
 https://vimeo.com/ondemand/anganotalesfrommada
 Cesar Paes	
+
+A 1989 documentary film, Angano... Angano: Tales from Madagascar presents a journey through the tales and legends of Madagascar, between reality and imagination, tinged with humor and tenderness that opts for the oral tradition to portray Malagasy culture.
 
 ---------------
 
@@ -257,11 +261,15 @@ Daratt aka Dry Season (2006)
 https://www.fandor.com/films/daratt
 Mahamat Saleh Harou
 
+Chad, 2006. After a forty-year civil war, the radio announces the government has just amnestied the war criminals. Outraged by the news, Gumar Abatcha orders his grandson Atim, a sixteen-year-old youth, to trace the man who killed his father and to execute him. Atim obeys him and, armed with his father's own gun, he goes in search of Nassara, the man who made him an orphan. It does not take long before he finds him. Nassara, who now goes straight, is married, goes to the mosque and owns a small bakery. After some hesitation Atim offers him his services as an apprentice. He is hired then it will be easy for him to gun down the murderer of his father. At least, that is what he thinks...
+
 ---------------
 
 Gito L'Ingrat aka Gito The Ungrateful (1992)	
 https://www.filmingo.ch/en/films/152-gito
 Léonce Ngabo
+
+A 1992 Burundian comedy film directed by Léonce Ngabo. Gito is a Burundian student who lives in Paris. When he finishes his studies, he decides to go back to his country and promises his French girlfriend that he will call her when he becomes a minister, something that he is convinced that will happen. However, he loses gradually his ambition as he is confronted with the country reality. He thus starts going out again with his childhood loved one. Nevertheless, he will make the best of a bad deal, with the help of the two women of his life.
 
 ---------------
 
