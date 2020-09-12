@@ -708,114 +708,153 @@ Yamina Bachir
 
 ----------------
 
-Paulin Soumanou VIeyra	Sindiely	Benin-Senegal	1965	
+Sindiely (1965)	
 https://www.youtube.com/watch?v=TObW3DRK_V4
-Wolof	
+Paulin Soumanou Vieyra	
 
-Med Hondo	Sarraounia	Mauritania	1986	
-https://www.youtube.com/watch?v=TvWCN2Joe8U
-English	
+---------------
 
-Idrissa Ouedraogo	
-La Colere de Dieu ( Anger of the Gods)
-Burkina Faso	2003	
-https://www.youtube.com/watch?v=tyUIZJYkTTs&t=904s
-French	
+Sarraounia (1986)	
+https://archive.org/details/Sarraounia
+Med Hondo	
 
-Roger Gnoan M' Bala	Au nom du Christ	Ivory Coast	1993	
-https://www.youtube.com/watch?v=u-lK0ncVZaE
-English
-
-Djibril Diop Mambety	Touki Bouki	Senegal	1973	
-https://www.youtube.com/watch?v=Z9p_fMbzDdk
-Wolof - English	
-
-Benoît Lamy & Mweze Ngangura	La Vie est Belle	Congo	1987	
-https://www.youtube.com/watch?v=UIbUBxM_Ka0
-French	
-
-Ousmane Sembene	Borom Sarret	Senegal	1963	
-https://www.youtube.com/watch?v=VdaC4Oa_z80
-French	
-
-Mweze Ngangura	
-Pièces d'Identités (Pieces of Identity)
-Congo	1998	
-https://www.youtube.com/watch?v=vfJvUZv1uwU
-English	
-
-Alain Gomis	L'Afrance (As a Man)	Senegal-France	2001	
-https://www.youtube.com/watch?v=VoIast31FOE
-French-English	
-
-Alain Gomis	Petit Lumiere (Little Light)	Senegal	2003	
-https://www.youtube.com/watch?v=vPdjWvZZUGw
-Wolof-French	
-
-Salif Traoré	Faro La Reine Des Eaux	Mali	2007	
-https://www.youtube.com/watch?v=w3KMnTGKRrQ
-English	
-
-Mohammed Slim-Riad	Vent du Sud	Algeria	1975	
-https://www.youtube.com/watch?v=WOvugUSEedc
-Arabic - French	
-
-Tunde Kelani	The Campus Queen	Nigeria	2003	
-https://www.youtube.com/watch?v=WoWu5cZwjhg
-English	
-
-King Ampaw	Kukurantumi Road to Accra	Ghana	1983	
-https://www.youtube.com/watch?v=WVq7YGMEops
-English	
-
-Souleman Cissé	Finye ( The Wind)	
-Mali/ Burkina Faso
-1982	
-https://www.youtube.com/watch?v=Wyj-cu6oBfM
-English, French	
-
-Mohammed Camara	Dakan	
-Guinea (Conakry)
-1997	
-https://www.youtube.com/watch?v=x12jOpmGQ20
-English	
-
-Nelson Makengo	Théatre Urbain	DRC	2017	
-https://www.youtube.com/watch?v=xmasxo9AD1s&t=11s
-Lingala-English	
-
-Idrissa Ouedraogo	Samba Traore	Burkina Faso	1992	
-https://www.youtube.com/watch?v=XRz9nXVIyow
-Dioula - French	
-
-Dani Kouyaté	Sia Le Reve du Python	Burkina Faso	2001	
-https://www.youtube.com/watch?v=y-gG3Goz8eE&t=637s
-Dioula - Spanish
-
-Dani Kouyaté	
-Keita! L'heritage du griot ( Keita! Voice of the Griot)
-Burkina Faso	1994	
-https://www.youtube.com/watch?v=y4oY4d5f66E
-French	
-
-Moufida Tlatli	The silences of the place	Tunisia	1994	
-https://www.youtube.com/watch?v=YbeNlh8UU30
-English	
-
-Abdulkadir Ahmed Said	Geedkha Nolosha (Tree of Life)	Somalia	1986	
-https://www.youtube.com/watch?v=S3WASFnKrXM
+-------------
 	
-Ousmane Sembene	Mandabi ( The Money Order)	Senegal	1968	
+La Colere de Dieu - Anger of the Gods (2003)	
+https://www.youtube.com/watch?v=tyUIZJYkTTs&t=904s
+Idrissa Ouedraogo
+
+----------
+
+Au nom du Christ (1993)	
+https://www.youtube.com/watch?v=u-lK0ncVZaE
+Roger Gnoan M'Bala
+
+-----------
+
+Touki Bouki (1973)	
+https://www.youtube.com/watch?v=Z9p_fMbzDdk
+Djibril Diop Mambety	
+
+-------------
+
+La Vie est Belle (1987)	
+https://www.youtube.com/watch?v=UIbUBxM_Ka0
+Benoît Lamy, Mweze Ngangura	
+
+-------------
+
+Borom Sarret (1963)	
+https://www.youtube.com/watch?v=VdaC4Oa_z80
+Ousmane Sembene
+
+--------------
+
+Pièces d'Identités - Pieces of Identity (1998)	
+https://www.youtube.com/watch?v=vfJvUZv1uwU
+Mweze Ngangura	
+
+--------------
+
+L'Afrance - As a Man (2001)	
+https://www.youtube.com/watch?v=VoIast31FOE
+Alain Gomis	
+
+---------------
+
+Petit Lumiere - Little Light (2003)	
+https://www.youtube.com/watch?v=vPdjWvZZUGw
+Alain Gomis	
+
+---------------
+
+Faro La Reine Des Eaux (2007)	
+https://www.youtube.com/watch?v=w3KMnTGKRrQ
+Salif Traoré	
+
+---------------
+
+Vent du Sud (1975)	
+https://www.youtube.com/watch?v=WOvugUSEedc
+Mohammed Slim-Riad
+
+-----------------
+
+The Campus Queen (2003)	
+https://www.youtube.com/watch?v=WoWu5cZwjhg
+Tunde Kelani	
+
+-----------------
+
+Road to Accra (1983)	
+https://www.youtube.com/watch?v=WVq7YGMEops
+Kukurantumi 
+
+-----------
+
+Finye - The Win	(1982)	
+https://www.youtube.com/watch?v=Wyj-cu6oBfM
+Souleman Cissé	
+
+------------
+
+Dakan (1997)	
+https://www.youtube.com/watch?v=x12jOpmGQ20
+Mohammed Camara
+
+------------
+
+Théatre Urbain (2017)	
+https://www.youtube.com/watch?v=xmasxo9AD1s&t=11s
+Nelson Makengo
+
+--------------
+
+Samba Traore (1992)	
+https://www.youtube.com/watch?v=XRz9nXVIyow
+Idrissa Ouedraogo
+
+----------------
+
+Sia Le Reve du Python (2001)	
+https://www.youtube.com/watch?v=y-gG3Goz8eE&t=637s
+Dani Kouyaté	
+
+-----------------
+
+Keita! L'heritage du griot - Keita! Voice of the Griot (1994)
+https://www.youtube.com/watch?v=y4oY4d5f66E
+Dani Kouyaté	
+
+-------------------
+
+The silences of the place (1994)	
+https://www.youtube.com/watch?v=YbeNlh8UU30
+Moufida Tlatli	
+
+---------------------
+
+Geedkha Nolosha - Tree of Life (1986)	
+https://www.youtube.com/watch?v=S3WASFnKrXM
+Abdulkadir Ahmed Said	
+
+-----------------------
+	
+Mandabi - The Money Order (1968)	
 https://www.youtube.com/watch?v=yUgA7gGlPhc
-English	
+Ousmane Sembene
 
-Gaston Kabore	Buud Yam	Burkina Faso	1997	
+--------------------------
+
+Buud Yam (1997)	
 https://www.youtube.com/watch?v=YYkgd0vS2Lo&t=157s
-English	
+Gaston Kabore
 
-Cheick Oumar Sissoko	Guimba the tyrant	Mali	1995	
+-------------------------
+
+Guimba the Tyrant (1995)	
 https://www.youtube.com/watch?v=zUMw4O59DIk
-English
+Cheick Oumar Sissoko	
 
 ----------
 ----------
@@ -1002,7 +1041,7 @@ https://youtu.be/U089cG2BqR8
 
 --------------
 
-Other
+# Other
 
 The Color of Pomegranates (1969)
 https://www.youtube.com/watch?v=26tEfblGH5I
