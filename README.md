@@ -758,5 +758,48 @@ Shona-English
 
 # Black Cinema
 
+----------
+----------
+
+# Iranian Cinema
+
+The House is Black (1963)
+https://vimeo.com/136522352
+
+The Brick and the Mirror (1965)
+https://www.youtube.com/watch?v=X-gfNZqKULw
+Ebrahim Golestan
+
+Teheran, payetakht e Iran ast - Teheran is the Capital of Iran - Kamran Shirdel (1966)
+https://www.youtube.com/watch?v=Jzgm760JyVs
+
+Siavash dar Takhte Jamshid - Siavash in Persepolis (1967)
+https://farsiland.com/movies/siavash-in-persepolis/
+
+Qaleh - Women's Quarter (1966-1980)
+https://archive.org/details/Qaleh-WomensQuarter1966-1980
+Kamran Shirdel
+
+The Night it Rained (1967)
+https://www.youtube.com/watch?v=l_E84fkgels
+Kamran Shirdel
+
+Certified Copy (2010)
+https://www.youtube.com/watch?v=i4wI5GST8qk
+
+A Separation (2011)
+https://www.youtube.com/watch?v=CAp9OiOeE90
+
+The Salesman (2016)
+https://www.youtube.com/watch?v=hF0QU7jaMug
+
+-----------
+
+Other
+
+The Color of Pomegranates (1969)
+https://www.youtube.com/watch?v=26tEfblGH5I
+
+
 
 
