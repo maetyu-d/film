@@ -4,8 +4,9 @@
 
 # Palestinian Cinema
 
-### (Little Wars (1982))[https://vimeo.com/447295097]
-War/Drama (112 mins)
+### [Little Wars (1982)](https://vimeo.com/447295097)
+Genre: War/Drama
+Duration: 112 mins
 Language: Arabic
 
 - Starring: Soraya Khoury, Nabil Ismail, Roger Hawa, Rifaat Tarabay and Rida Khoury
@@ -19,9 +20,9 @@ Little Wars tells the story of Lebanon’s civil war in 1975 through three chara
 
 -----------
 
-My Love Awaits Me by the Sea (2013)
-https://vimeo.com/442694097
-Documentary (80 mins)
+### [My Love Awaits Me by the Sea (2013)](https://vimeo.com/442694097)
+Genre: Documentary
+Duration: 80 mins
 Language: Arabic
 
 - Nael Kanj, Hasan Hourani and Mohammad Reda Al-Haj Ahmad
