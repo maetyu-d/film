@@ -87,23 +87,29 @@ Le Cadavre Encerclé (1963)
 https://www.youtube.com/watch?v=Q2wK7LMPkeI
 Jean-Claude Bergeret
 
+Kateb took up the themes of and figure Nedjma in many poems and plays; this female character was throughout his life the focus of his creative vision. His first play was Le cadavre encerclé (prod. 1958, The encircled corpse), a drama of colonization and alienation filled with surrealist images.
+
 -----------
 
-La Rage d'Ecrire: Kateb Yacine (1966)	
+La Rage d'Ecrire (the rage to write): Kateb Yacine (1966)	
 https://www.youtube.com/watch?v=GFXnwJvsapo&t=2093s
 Jean Antoine	
 
 ------------
 
-Fela Kuti- Music is the Weapon (1982)	
+Fela Kuti: Music is the Weapon (1982)	
 https://vimeo.com/206759023
 Jean-Jacques Flori, Stephane Tchalgadjieff
 
+Shot in Lagos at the peak of his career in 1982, this documentary contains interviews with Fela detailing his thoughts on politics, Pan-Africanism, music and religion, alongside unpublished versions of songs like ITT, Army Arrangement and Power Show. For all who wish to know more about an artist at the heart of African musical history, Fela Kuti: Music is the Weapon is an essential film.
+
 ------------
 
-Demain Une Jour Nouveau	(1978)	
+Demain, Un Jour Nouveau	(1978)	
 https://www.youtube.com/watch?v=u0t4iUqcGA0
 Pierre Marie Dong
+
+Fictionalized story of the arrival in power of President Omar Bongo.
 
 -------------
 
@@ -111,29 +117,39 @@ Sambizanga (1972)
 https://www.youtube.com/watch?v=zH_aIENMwt8
 Sarah Maldoror
 
+Sambizanga, film by filmmaker Sarah Maldoror produced in 1972, inspired by Luandino's novel (Domingos Xavier's The True Life). The story is that of Maria, inhabitant of a Luanda musseque, the Sambizanga. During the days following the nationalist uprising of 1961, Maria went through the city's jails as if on a pilgrimage. She looks for Xavier, her man, unaware that he has already been tortured and killed.
+
 --------------
 
 The World's First Festival of Black Arts (1966)
 https://www.youtube.com/watch?v=q0d572P8U3I&t=1034s
 William Greaves
 
+In April 1966, legendary jazz musician Duke Ellington travelled to Dakar, Senegal, with his orchestra to play at the first World Festival of Black Arts. Organised against the backdrop of African decolonisation and the push for civil rights in the US, the festival was hailed as the inaugural cultural gathering of the black world. More than 2,500 artists, musicians, performers and writers gathered in Dakar that month. The event spanned literature, theatre, music, dance, film, as well as the visual arts.  This is the documentary film of the event of the same name, directed by William Greaves.
+
 ---------------
 
-La Prix de la Liberte (1978)	
+Le Prix de la Liberte (1978)	
 https://www.filmingo.ch/en/films/250-le-prix-de-la-liberte
 Jean Pierre Dikongue-Pipa
 
+After refusing the sexual advances of her village chief and her father's authority, a young woman runs away from home and goes to town. There she meets several members of her family and tries to start her life from scratch. She enrolls at a high school and makes new friends. However, she realizes that social relations in town also depend on sexual favors and that around her everyone has given in to that practice. When she loses the only man she loved, the girl returns to her village and in a fit of rage sets it on fire.
+
 ---------------
 
-Heritage Africa	Ghana (1989)	
+Heritage Africa (1989)	
 https://www.youtube.com/watch?v=ukoDTXBvVtU
 Kwaw Ansah
 
+The story of Quincy Bosomfield who is the product of colonial education and has risen to become the district commissioner. In the process, he abandons his African heritage and all that has real meaning to him.
+
 ---------------
 
-Terror and the Time (1977)	
+Terror and the Time (1977/1979)	
 https://www.youtube.com/watch?v=F9T-FgZTLtE
-The Victor Jarra Collective
+Rupert Roopnaraine
+
+Documentary about repressive violence in colonial Guyana.
 
 ----------------
 
@@ -141,11 +157,15 @@ Al-mummia (aka The Mummy)(1969)
 https://www.youtube.com/watch?v=RAikajWw2gQ
 Shadi Abdel Salam	
 
+An Upper-Egyptian clan robs a cache of mummies and sells the artifacts on the illicit antiquities black market. After a conflict within the clan, one of its members goes to the police, helping the Antiquities Service find the cache.
+
 ------------------
 
 Loved brewed in the African pot (1980)	
 https://www.youtube.com/watch?v=PnB4BqtkD9A
 Kwaw Ansah	
+
+Love collides with social class and colonialism when Aba Appiah, born to privilege, falls in love with Joe Quansah, son of a fisherman. Her father, retired civil servant Kofi Appiah, has other plans for her, and seeks to block their marriage. The resulting conflict has complex and unexpected consequences.
 
 -----------------
 
@@ -153,11 +173,15 @@ Sémbene: The Making of African Cinema (1994)
 https://www.youtube.com/watch?v=HJttJ_AZrZs
 Manthia Diawara, Thiong'o Ngugi-wa
 
+Senegalese documentary about the country’s most famous film-maker – Ousmane Sembène. The groundbreaking director explains his philosophy, politics and hopes for the future of African cinema.
+
 ------------------
 
 One World in Relation (2010)	
 https://www.youtube.com/watch?v=aTNVe_BAELY&t=1445s
 Manthia Diawara	Glissant
+
+In 2009, filmmaker Manthia Diawara, along with his camera, documented his conversations with Martinican philosopher, writer, and poet Édouard Glissant aboard the Queen Mary II on their transatlantic journey from Southampton, England to New York City. This intellectual voyage encapsulates Glissant’s life’s work and studies on his theory of Relation and the concept of Tout-monde, amongst several other of his philosophical suppositions.
 
 ------------------
 
