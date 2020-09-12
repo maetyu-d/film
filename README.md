@@ -1083,9 +1083,10 @@ https://www.youtube.com/watch?v=LmFMpg_fgIg
 Robert Altman
 
 Nashville (1975)
+https://learningonscreen.ac.uk/ondemand/index.php/prog/00076049?bcast=31021792
 https://www.amazon.co.uk/Nashville-Henry-Gibson/dp/B00I9KUN0K
 https://itunes.apple.com/gb/movie/id366474905
-(small cost to rent)
+(last two links have a small cost to rent)
 Robert Altman
 
 Edward Yang’s That Day, on the Beach (1983) [see 00:15:50] was one of the first New Cinema films to pursuit ‘sonic realism’ in and via  postsynching. Sound lead Duu-Chih Tu first asked female lead Sylvia Chang to dub the subtle sounds of “swallowing saliva, opening the mouth, and breathing” then added room tone/ambience/noise to create “a realistic sense of space” through sound. Tu considered Yang’s subsequent The Terrorizers (1986) to be the high point of postsynching (i.e. sound after filming).
