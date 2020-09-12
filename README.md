@@ -963,7 +963,7 @@ Asghar Farhadi
 --------------
 --------------
 
-Mic'd Bodies
+# Mic'd Bodies
 
 [Robert Altman] tried to replicate natural conversational sounds, even with large casts, by wiring hidden microphones to actors, then recording them talking over each other with multiple soundtracks. During the filming, he wore a headset to ensure that important dialogue could be heard, without emphasizing it. This produced a "dense audio experience" for viewers, allowing them to hear multiple scraps of dialogue, as if they were listening in on various private conversations. Altman recognized that although large casts hurt a film commercially, "I like to see a lot of stuff going on." Altman first used overlapping soundtracks in MASH (1970), a sound technique which movie author Michael Barson describes as "a breathtaking innovation at the time." He developed it, Altman said, to force viewers to pay attention and become engaged in the film as if they were an active participant.
 
