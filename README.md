@@ -1152,6 +1152,13 @@ Edward O. Bland
 
 -------------
 
+Umbrellas of Cherbourg
+https://vimeo.com/332773417
+Jacques Demy
+
+-------------
+
+
 BOB Playlist - Film Musicals (Sound and Image):
 https://learningonscreen.ac.uk/ondemand/playlists/274737
 
