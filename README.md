@@ -63,7 +63,7 @@ Kin-dza-dza! is a 1986 Soviet sci-fi dystopian black comedy cult film released b
 ----------
 ----------
 
-# African Cinema (cinema made in Africa)
+# African Cinema (films made in Africa)
 
 ----------
 
