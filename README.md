@@ -189,11 +189,15 @@ Badou Boy (1970)
 https://www.youtube.com/watch?v=cGbOgFHqTpU&t=2718s
 Djibril Diop Mambety
 
+Senegalese maverick filmmaker Djibril Diop Mambéty is still regarded as one of the most important African filmmakers of all time: a visionary both politically and creatively. But as a lone dissenter, allergic to institutional obedience, his work was deliberately ‘lost’ by those in power. Rarely seen yet often talked about, the film, like its creator, has been an enigma. The plot of Badou Boy (1970) looks at a “badou boy”, or a bad boy, who survives in the bustling city of Dakar in the late 1960s, a turbulent time. Part parody, part fable, the film borrows from the strategic and economic resources of the gangster genre and psychedelic punk aesthetics in order to comment on the postcolonial experience in a newly independent nation.
+
 ----------------
 
 Le Franc (1994)	
 https://www.youtube.com/watch?v=xy18qXFGsSs
 Djibril Diop Mambety
+
+Marigo the musician dreams with his instrument – a congoma – confiscated by his landlady because he never pays the rent. He gets hold of a lottery ticket and decides to put it in a safe place while he waits for the draw: he glues it to the back of his door. The night of the draw, fortune blinds Marigo, he is the proud owner of the winning ticket. He already sees himself as a millionaire, with a thousand congomas, an orchestra and a private plane… He even has visions of the charismatic Aminata Fall, symbol of capitalism in Africa. But there is small problem; the ticket is glued to the door.
 
 --------------
 
@@ -201,29 +205,39 @@ Moolade	(2004)
 https://rarefilmm.com/2019/12/moolaade-2004/
 Ousmane Sembene	
 
+When a woman shelters a group of girls from suffering female genital mutilation, she starts a conflict that tears her village apart.
+
 ----------
 
-Fallen Angels Paradise (1996)	
+Fallen Angels Paradise (1999)	
 https://trakt.tv/movies/fallen-angels-paradise-2000
 Oussama Fawzi
 
+A formerly successful man dies then his semi-crazy daughter makes arrangements while his street thug friends take the corpse out for one last night.
+
 -----------
 
-From a Whisper (2016)	
+From a Whisper (2009)	
 https://vimeo.com/158607075
 Wanuri Kahiu
 
+Abu, a policeman discovers that his best friend is part of a fundamentalist suicide attack in Nairobi and tries to stop him. Based on real events.
+
 -------------
 
-Moi Un Noir (1958)	
+Moi Un Noir (1957)	
 https://vimeo.com/294911765
 Jean Rouch
+
+"I, a Negro" depicts young Nigerien immigrants who left their country to find work in the Ivory Coast, in the Treichville quarter of Abidjan, the capital. These immigrants live in squalor in Treichville, envious of the bordering quarters of The Plateau (the business and industrial district) and the old African quarter of Adjame. The film traces a week in these immigrants' lives, blurring the line between their characters' routines and their own. Every morning, Tarzan, Eddy Constantine and Edward G. Robinson seek work in Treichville in hopes of getting the 20 francs that a bowl of soup costs them. They perform menial jobs as dockers carrying sacks and handy labor shipping supplies to Europe. At night, they drink away their sorrows in bars while dreaming about their idealized lives as their "movie" alter-egos, alternatively as an FBI Agent, a womanizing bachelor, a successful boxer, and even able to stand up to the white colonialists that seduce away their women. These dream-like sequences are shot in a poetic mode. Each day is introduced by an interstitial voice of god omniscient narration from Jean Rouch, providing a universal thematic distance to the movie's events. The film is book-ended by a narration directed at both Petit Jules and the audience from Edward G. Robinson fondly looking back on his childhood in Niger and concluding that his life is worthy of his dreams.
 
 -------------
 
 Makwayela (1977)	
 https://www.youtube.com/watch?v=7ls_Hbtdru8
 Jean Rouch, Jacques d’Arthuys
+
+A short film by Jean Rouch, set in Mozambique.
 
 ---------------
 
