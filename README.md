@@ -119,8 +119,88 @@ Youths in Ibadan join other movements across Nigeria in a peaceful demonstration
 ----------
 ----------
 
-# Black Cinema
+# Black Film in/from Britain
 
 Handsworth Songs
 https://www.youtube.com/watch?v=8gK25q4m_i4
+
+Ngozi Onwurah	Flight of the Swan	UK	1992	
+https://www.youtube.com/watch?v=oTZDx_Vn4cI
+English	
+
+Ngozi Onwurah	White men are cracking up	UK	1994	
+https://player.bfi.org.uk/free/film/watch-white-men-are-cracking-up-1994-online
+English	
+
+Samona Olanipekun	Kindred	UK	2018	
+https://player.bfi.org.uk/free/film/watch-kindred-2018-online
+English	
+
+Tomisin Adepeju	Appreciation	UK	2019	
+https://player.bfi.org.uk/free/film/watch-appreciation-2019-online
+English	
+
+Jillian Li-Sue	Cedar, Wood and Silk	UK	1995	
+https://player.bfi.org.uk/free/film/watch-cedar-wood-silk-1995-online
+English	
+
+Winta Yohannes	Blues is my middle name	UK	1999	
+https://player.bfi.org.uk/free/film/watch-blues-is-my-middle-name-1999-online
+English	
+
+Topher Campbell	
+The Homecoming: A Short Film about Ajamu
+UK	1995	
+https://player.bfi.org.uk/free/film/watch-the-homecoming-a-short-film-about-ajamu-1995-online
+English	
+
+Julian Henriques	We the Ragamuffin	UK	1992	
+https://player.bfi.org.uk/free/film/watch-we-the-ragamuffin-1992-online
+Englush	short doc
+
+Isaac Julien	Gay Black Group	UK	1983	
+https://player.bfi.org.uk/free/film/watch-gay-black-group-1983-online
+
+Franco Rosso	Babylon	UK	1980	
+https://www.youtube.com/watch?v=PUKzUNhhzDo
+English
+
+Dee Rees	Colonial Gods	Wales	2009	
+https://www.youtube.com/watch?v=9rHXE9hAg-c&t=8s
+English
+
+Menelik Shabazz	Omega Rising	U.K	1988	
+https://vimeo.com/306300411
+English	
+
+Menelik Shabazz	Step Forward Youth	U.K	1974	
+https://vimeo.com/99842806?fbclid=IwAR0n5LQRvGX3nZ1cMYzWu8e58nJRHGjYLnkJ-w0PJdmKieYxBfjW6pS2O_0
+English	
+
+Menelik Shabazz	Catch a Fire	U.K - Jamaica	1996	
+https://vimeo.com/308615764
+English	
+
+Wanuri Kahiu	Pumzi	Kenya	2009	
+https://vimeo.com/46891859
+English	
+
+Menelik Shabazz	Blod Ah Go Run	U.K	1981	
+https://vimeo.com/99845352
+English	
+
+Milton Bryan & Menelik Shabazz	The People's Account	U.K	1984	
+https://vimeo.com/320751479?ref=fb-share&1&fbclid=IwAR2dAvXzw79rrl8oh86Y0f9Zm0PTGcmhE0CowsZi1YeHLsbi-TIMt_VUp2I
+English
+
+Chris Austin & Gill Bond	House of Hunger	UK-Zimbabwe	1983	
+https://www.youtube.com/watch?v=LbW0SjamJh4
+Shona-English	
+
+----------
+----------
+
+# Black Cinema
+
+
 
