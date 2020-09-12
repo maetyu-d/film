@@ -784,14 +784,36 @@ The Night it Rained (1967)
 https://www.youtube.com/watch?v=l_E84fkgels
 Kamran Shirdel
 
+Cow (1969)
+https://www.youtube.com/watch?v=VN66CLqkEZ4
+Dariush Mehrjui
+
+The Postman (1972)
+https://farsiland.com/movies/the-postman/
+Dariush Mehrjui
+
+Downpour (1972)
+https://www.youtube.com/watch?v=Koh50OdCWvU
+Bahram Beyzai
+
+A Simple Event - YEK ETEFAGH SADEH (1973)
+https://farsiland.com/movies/a-simple-event/
+SOHRAB SHAHID SALESS
+
+Still Life - Sohrab Shahid Saless Tabiate bijan (1974)
+https://www.youtube.com/watch?v=ASNAjQoZe-A
+
 Certified Copy (2010)
 https://www.youtube.com/watch?v=i4wI5GST8qk
+Abbas Kiarostami
 
-A Separation (2011)
+A Separation - Jodaeiye Nader az Simin (2011)
 https://www.youtube.com/watch?v=CAp9OiOeE90
+Asghar Farhadi
 
 The Salesman (2016)
 https://www.youtube.com/watch?v=hF0QU7jaMug
+Asghar Farhadi
 
 -----------
 
