@@ -1126,6 +1126,13 @@ Sergei Parajanov
 
 # Musical Contexts
 
+-------
+
+Ten Minutes to Live (1932)
+https://youtu.be/d2kIRsiuc_U
+Oscar Micheaux
+
+
 Symphony In Black - A Rhapsody of Negro Life (1935)
 https://youtu.be/LPD-8-l68L4
 Duke Ellington, Billie Holiday
@@ -1143,3 +1150,23 @@ https://youtu.be/6eFFKv5YMzI
 Edward O. Bland
 
 -------------
+
+BOB Playlist - Film Musicals (Sound and Image):
+https://learningonscreen.ac.uk/ondemand/playlists/274737?fbclid=IwAR2KD0KtZmGlQaJYhO96NNCW_IqEID7OM9T5-DqzqVN0xYWjiVqygYfAtLg
+
+Contains:
+
+* An American in Paris
+* Hedwig and the Angry Inch
+* Clip from Hedwig and the Angry Inch - The origin of love
+* Tap America: How A Nation Found Its Feet
+* MICHAEL JACKSON’s Journey from Motown to Off the Wall
+* Babymother
+* Sweeney Todd: The Demon Barber of Fleet Street
+* Walking on Sunshine
+* Chicago
+* Dreamgirls
+* Dance Hall
+* The Producers
+* Gene Kelly: Talking Pictures
+* On the Town
