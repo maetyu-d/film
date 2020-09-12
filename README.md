@@ -1153,7 +1153,7 @@ Edward O. Bland
 -------------
 
 BOB Playlist - Film Musicals (Sound and Image):
-https://learningonscreen.ac.uk/ondemand/playlists/274737?fbclid=IwAR2KD0KtZmGlQaJYhO96NNCW_IqEID7OM9T5-DqzqVN0xYWjiVqygYfAtLg
+https://learningonscreen.ac.uk/ondemand/playlists/274737
 
 Contains:
 
@@ -1171,3 +1171,22 @@ Contains:
 * The Producers
 * Gene Kelly: Talking Pictures
 * On the Town
+
+-----------
+
+BOB Playlist - Sound and Image:
+https://learningonscreen.ac.uk/ondemand/playlists/274704
+
+Contains:
+
+* Bicycle Thieves
+* The Proud Valley
+* Clip from Cabaret
+* Blithe Spirit
+* Nashville
+* Selma
+* My Beautiful Laundrette
+* Steve McQueen: Are You Sitting Uncomfortably?: A Culture Show Special
+* That Day We Sang, by Victoria Wood
+* The Producers
+* The Third Man
