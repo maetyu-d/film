@@ -93,4 +93,33 @@ Kin-dza-dza! is a 1986 Soviet sci-fi dystopian black comedy cult film released b
 
 # African Cinema
 
+### [Afronauts (2014)](https://www.youtube.com/watch?v=lb3pu5jXWHU)
+Genre: Science Fiction
+Duration: 14 mins
+Language: English
+
+- written and directed: Nuotama Bodomo (as Frances Bodomo)
+- cinematography and edited: Pep Bonet
+- music: José Bautista
+
+On the 16th July 1969, America prepares to launch Apollo 11. Thousands of kilometers away, a ragtag group of Zambian exiles is trying to beat America to the Moon.
+
+---------
+
+### [We are Tired (2020)](https://vimeo.com/447901846)
+Genre: Documentary
+Duration: 5 mins
+Language: English
+
+- written and directed: Tobi Akinde
+
+Youths in Ibadan join other movements across Nigeria in a peaceful demonstration against the incessant record of rape cases. Tobi's camera accompanies the demonstration restlessly to reveal power play, confrontation of abuse of authority and reconciliation.
+
+----------
+----------
+
+# Black Cinema
+
+Handsworth Songs
+https://www.youtube.com/watch?v=8gK25q4m_i4
 
