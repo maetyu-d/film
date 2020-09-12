@@ -63,7 +63,7 @@ Kin-dza-dza! is a 1986 Soviet sci-fi dystopian black comedy cult film released b
 ----------
 ----------
 
-# African Cinema (films made in Africa)
+# African Cinema
 
 ----------
 
@@ -397,29 +397,39 @@ Ceddo (1977)
 https://www.youtube.com/watch?v=9ipcync79CI
 Ousmane Sembene
 
+In protest of forced conversion to Islam, the Ceddo (outsiders) kidnap King Demba War's daughter Princess Dior Yacine and hold her hostage.
+
 -----------
 
 Camp de Thiaroye (1988)	
 https://www.youtube.com/watch?v=BOyD3u0vXvI&t=1808s
 Ousmane Sembene
 
+In this semi-autobiographical film, black soldiers help to defend France, but are detained in prison camp before being repatriated home.
+
 -----------
 
-Nianagoro (1987)	
+Yeleen (1987)	
 https://www.youtube.com/watch?v=brBAdhLEcsg
 Souleymane Cissé
 
+Yeelen (Bambara for "brightness"/"light") is a 1987 Malian film directed by Souleymane Cissé. It is filmed in the Bambara and Fula languages, and is based on a legend told by the Bambara people. Though the era is undefined, it is presumably set in the 13th century in the Mali Empire and is a heroic quest narrative featuring magic and precognition. It stars Issiaka Kane as Nianankoro, a young African man who possesses magical powers. Niamanto Sanogo plays Niankoro's father, who is tracking his son through the Bambara, Fulani and Dogon lands of West Africa using a magical wooden post to guide him. Yeelen was met with wide critical success, and was awarded the Jury Prize at the 1987 Cannes Film Festival. It was also nominated for the Golden Palm award for the same year.
+
 -----------
 
-Tabataba (1987)	
+Tabataba (1988)	
 https://www.youtube.com/watch?v=ch9Rpb3oYSk
 Raymond Rajaonarivelo
+
+Tabataba tells the story of a small Malagasy village during the independence uprising which took place in 1947 in the south of the country. For several months, part of the Malagasy population revolted against the French colonial army in a bloody struggle. The repression in villages that followed was terrible, leading to fires, arrests and torture. Women, children and the elderly were the indirect victims of the conflict and suffered particularly from famine and illness. One leader of the MDRM, the party campaigning for independence, arrives in a village. Solo (François Botozandry), the main character, is still too young to fight but he sees his brother and most of the men in his clan join up. His grandmother, Bakanga (Soavelo), knows what will happen, but Solo still hopes his elder brother will return a hero. After months of rumours, he sees instead the French army arrive to crush the rebellion.
 
 ------------
 
 L'ombre de Liberty (2006)	
 https://www.youtube.com/watch?v=cjZmJDmBrGs
 Imunga Ivanga
+
+Captain Ekumu has a lot on his mind: his son Ika is dying and he does not have the means to find treatment for him, which is driving his wife Ezéni to despair. A mysterious radio broadcast interrupts the speech of President Baby Zame. It talks of a golden mango tree, of a day to come, of the freedom of poets. Liberty holds sway on the airways it pirates for fifteen minute periods from its hiding place in a truck. Colonel Paturau is ordered to announce a bounty prize to anyone able to arrest pirate Liberty. But how can you arrest a voice that has no body? A culprit must be found. For Ekumu, this could be the solution to his family tragedy.
 
 -------------
 
@@ -433,11 +443,15 @@ Tilaï (1990)
 https://www.youtube.com/watch?v=cvKO_O6rfKU
 Idrissa Ouedraogo
 
+Saga returns to his village after a long absence, and finds that his father has married Nogma, his fiancee, during his leave. Nogma has become his second wife, and by law, Saga's mother. Saga runs away and builds a straw hut near the village. Still in love, Saga and Nogma begin an affair, with Nogma telling her parents she is going to visit her aunt, then running to Saga's hut. After the affair is discovered, Saga's father decrees that he must die for dishonoring the family. Nogma's father hangs himself from a tree, and Nogma is disowned by her mother at her father's funeral. Saga's brother Kougri is selected to execute Saga. He pretends to kill Saga so as to restore the family's honor. Saga and Nogma then run away to another village, and the family falls apart. As Saga and Nogma begin to build a life, Nogma tells Saga that she is pregnant. Meanwhile, Kougri comes to regret his failure to kill Saga. After Saga's birth mother dies, Saga returns to the village, exposing Kougri's failure to carry out his father's orders. Kougri's father tells him he is banished. Kougri then picks up Saga's rifle and shoots him for having brought ruin to the family and his own life. He then walks off into exile and probable death.
+
 --------------
 
 Den Muso (1975)	
 https://www.youtube.com/watch?v=dckchni9ACs&t=2s
 Souleman Cissé
+
+A young mute woman is raped and becomes pregnant, with disastrous consequences within her family. The film also sketches the social/economic situation in urban Mali in the 1970s, particularly in relation to the treatment of women.
 
 ---------------
 
@@ -445,11 +459,15 @@ Yaam Dabo (1986)
 https://www.youtube.com/watch?v=DZeyJZqbUlw
 Idrissa Ouedraogo
 
+Yam Daabo (also released as Le Choix (English: The Choice)) is a 1986 Burkinabè film directed by Idrissa Ouédraogo. The film is the director's first feature film and has received several awards including the Georges-Sadoul Prize in 1986.
+
 -----------------
 
 Wend Kuuni (1983)	
 https://www.youtube.com/watch?v=EDnG3uIVLSI
 Gaston Kabore
+
+The mystery of a mute child lies at the center of African filmmaker Gaston Kabore's 1982 film Wend Kuuni (God's Gift), a fable-like drama set amongst the traditional villages of Burkina Faso in the days before industrialization. Discovering the child in an uninhabited area, a traveling peddler takes the young boy to the closest village. Though they do not recognize the boy, a local family chooses to shelter the child while the village chief seeks out the boy's parents. When this search is unsuccessful, the family chooses to adopt the boy, naming him Wend Kuuni -- "God's gift." He soon becomes part of the family, going to work in the fields as a shepherd and becoming friends with a young girl, Pongere. This idyll is disturbed, however, by tensions amongst one of the village families, as the increasingly violent conflict between a woman and her older husband help bring back memories of Wend Kuuni's past, including the tragic story of why he had been forced to leave his home village. Kabore uses his basic, archetypal tale to present an affectionate yet not idealized view of Africa's past and people.
 
 -----------------
 
@@ -457,11 +475,15 @@ Rih Essed - Man of Ashes (1986)
 https://www.youtube.com/watch?v=EKkjtls4wAM
 Nouri Bouzid	
 
+In the ensuing days before his wedding bridegroom Hachemi faces both the anxieties of the future and the shadows of the past. His best friend, Farfat, is the topic of street graffiti and local gossip, which calls his manhood into question. This ripples out to affect Hachemi for, unbeknownst to anyone, as apprenticed youths they were molested by Ameur, the local carpenter. Farfat is banished from his father's home and the shared secret between the two friends threatens to undo more than just the wedding, but their very lives.
+
 ------------------
 
 Arugba (2008)
 https://www.youtube.com/watch?v=EOIHP6z5vbg
 Tunde Kelani
+
+Nigerian filmmaker Tunde Kelani explores the social and economic divisions within his country in this drama. The leader of a small town in the Southwest of Nigeria has carefully cultivated a reputation as an enemy of corruption, but the truth is quite different from his public image; he has a long history of making business deals with overseas corporation that are not in the best interests of his citizens, and he pockets the profits while poverty remains widespread among the people. Meanwhile, a young woman from a poor family is struggling to keep their lives together while she prepares to accept a great local honor -- she's been chosen to be the "arugba" (a ceremonial virgin) who will carry a sacred vessel in a ritual that has been performed in the village for centuries. Arugba received its North American premiere at the 2009 African Diaspora Film Festival in New York City.
 
 ------------------
 
@@ -469,11 +491,15 @@ Sankofa	(1993)
 https://www.youtube.com/watch?v=eShDI2gcPBg
 Haile Gerima
 
+A self-absorbed Black American fashion model on a photo shoot in Africa is spiritually transported back to a plantation in the West Indies where she experiences first-hand the physical and psychic horrors of chattel slavery, and eventually the redemptive power of community and rebellion as she becomes a member of a freedom-seeking Maroon colony.
+
 -------------------
 
 Tasuma - The Fighter (2004)	
 https://www.youtube.com/watch?v=eSZdh8M-M6c
 Daniel Kollo Sanou
+
+A village elder veteran expecting his pension buys a mill on credit for the community, but the repeated requests ignored by the government bring back his fighting spirit.
 
 ----------------------
 
@@ -481,17 +507,15 @@ The Battle of Algiers (1965)
 https://www.youtube.com/watch?v=f_N2wyq7fCE
 Sarah Maldoror	
 
+In the 1950s, fear and violence escalate as the people of Algiers fight for independence from the French government.
+
 -----------------------
 
-Camp de Thiaroye - The Camp at Thiaroye	(1988)
-https://www.youtube.com/watch?v=cxVFEHU3Q5w
-Ousmane Sembene, Thierno Faty Sow
-
-------------------------
-
-Afrique Sur Seine (1957)	
+Afrique Sur Seine (1955)	
 https://www.youtube.com/watch?v=G1aqBbYR9Cc
 Paulin Soumanou Vieyra, Mamadou Sarr
+
+One of the first short features produced by Africans, filmed in Paris in 1955, it has been called the beginning of African cinema.
 
 -----------------
 
@@ -499,35 +523,31 @@ Cabascabo (1968)
 https://www.youtube.com/watch?v=g3hJSBwkEUU&t=950s
 Oumarou Ganda
 
-----------------
-	
-Udju Azul di Yonta - The Blue Eyes of Yonta (1992)	
-https://www.youtube.com/watch?v=g8fmnwOByrM
-Flora Gomes
+Story of a soldier (Nigerian) coming back from the Indochina War with his pay but just wastes it with friends, who abandon him as soon as he is broke.
 
 -----------------
 
-Safrana Or, The Right To Speak (1976)
+Safrana (Or, The Right To Speak) (1976)
 https://www.youtube.com/watch?v=h6vhSkk6ZAE&t=3172s
 Sidney Sokhona
 
--------------
-
-A Dry White Season (1989)	
-https://www.youtube.com/watch?v=IFVIG8hTym4
-Euzhan Palcy
+Like Med Hondo’s SOLEIL O. and Jean Rouch’s PETIT A PETIT, Sidney Sokhona’s SAFRANA (OR, THE RIGHT TO SPEAK) is both a satire of transition after French colonialism and a look at the alienation felt by African migrant communities in nations of their former colonizers. Operating as a reverse ethnography, these films took field notes on European social norms and put their notion of what is standard into question. Alternating between observational comedy and instructional political tract, SAFRANA starts with a quote by Mao about intuitive approaches to figuring out what’s useful for one’s own country in the operations of another, and ends with a documentary on farming techniques for agrarian socialism. A road trip, punctuated by acidic flashback vignettes, gets us from A to B by sketching a former colonizer with less to offer the formerly colonized than vice versa. The film is built around Somankidi Coura, with its ex-factory workers turned farmers playing fictionalized versions of themselves, along with photographer/activist Bouba Touré. With a number of pointed gags, Sokhona charts the various disenchantments of the workers on their exploratory stay in France meant to pick up useful techniques for their home country – from tertiary status at a factory to secondary status in a union; or the casual racism of a couple that won’t let an African garbageman pick up their dog from a trash can to another that wants to bring home a foreigner for kinks. By the time they end up at the farm, we’re as ready for the possible solutions explored in the climax as they are.
 
 ------------
 
-Un Taxi Pour Auzou (1994)	
+Un Taxi Pour Aouzou (1994)	
 https://www.youtube.com/watch?v=IhckwKP-luY
 Issa Serge Coelo	
 
+In this wonderful hybrid of fiction and documentary, we become the close companions of Ali Baba Nour, a Chadian cab driver who explains his hopes and dreams, his challenges in a difficult and often violent society, and his optimism for the baby he and his wife are expecting. In this urban poem, we are treated to the color and movement of Ali Baba Nour's city. It is a generous postcard that one might send to a friend, telling of an unforgettable acquaintance and place.
+
 ---------------
 
-Bamako	Mali (2006)	
+Bamako (2006)	
 https://www.youtube.com/watch?v=IpvMwpq_mWg&t=880s
 Abderahmanne Sissako	
+
+Melé is a bar singer, her husband Chaka is out of work and the couple is on the verge of breaking up... In the courtyard of the house they share with other families, a trial court has been set up. African civil society spokesmen have taken proceedings against the World Bank and the IMF whom they blame for Africa's woes... Amidst the pleas and the testimonies, life goes on in the courtyard. Chaka does not seem to be concerned by this novel Africa's desire to fight for its rights...
 
 ----------------
 
@@ -535,11 +555,15 @@ Terra Sonâmbula - Sleepwalking Land (2007)
 https://www.youtube.com/watch?v=IhckwKP-luY
 Teresa Prata	
 
+In the midst of Mozambique's devastating civil war, Muidinga, an orphaned refugee, wanders the countryside in search of his mother. His only companion is an elderly storyteller, and the only guide to finding his mother is a dead man's diary. This transporting drama underscores the power of imagination in surviving, and ultimately overcoming, the catastrophe of war.
+
 ---------------
 
 Yaaba (1989)	
 https://www.youtube.com/watch?v=IV6139e3Avc
 Idrissa Ouedraogo
+
+A small African village. The story focuses on Bila, a ten year old boy who befriends an old woman, Sana. Everybody calls her 'Witch' but Bila himself calls her 'Yaaba' (grandmother). When Bilas cousin Nopoko gets sick it is Sana's medicine who saves her.
 
 --------------
 
@@ -547,11 +571,15 @@ Neg Maron (2005)
 https://www.youtube.com/watch?v=kseZ8tizksk
 Jean-Claude Barny
 
+Two childhood friends, Joshua and Flint, are adrift in boredom in their area of Sainte-Rose, Guadeloupe. They're involved in petty theft and ordinary System D, until the arrival of Marcus.
+
 ---------------
 
 A Deusa Negra - Black Goddess (1978)	
 https://www.youtube.com/watch?v=kvfXgXrgKbU
 Ola Balogun
+
+A Deusa Negra is a love story that spans two centuries. In 18th century Yorubaland, Prince Oluyole is taken prisoner in the course of internecine warfare fanned by overseas slave traders. He is sold into slavery in Brazil. In present day Nigeria, at his father's deathbed, the young Babatunde promises to go to Brazil and search for traces of their once-enslaved ancestors. Beginning with a Candomblé ritual, his journey takes him ever deeper into this culture and, in a dream-like sequence, affords him a deeper understanding of his ancestors' suffering and powers of resistance. Balogun effortlessly links present with past, real with magical worlds and discourse with trance. The hypnotic atmosphere is also heightened by the music of the Nigerian drummer Remi Kabaka, which plays with repetitive patterns and distortions.
 
 --------------------
 
@@ -559,23 +587,23 @@ Yeelen (2004)
 https://www.youtube.com/watch?v=LCs-0DhLeQs
 Souleymane Cissé
 
+The protagonist of the movie is Babatunde, played by Zozimo Bulbul. The dying wish of Babatunde's father was for Babatunde to make a journey to Brazil and see what has become of the descendants of his great-grandfather, Oluyole who was abducted and sold into slavery and also search the story of a mysterious legend in the family's history. He is handed a Yemoja sculpture as guide to journey that took him from Lagos to favelas in Brazil and a visit to a candomblé session. The movie's plot used African spiritual embodiment existing as a reality. Babatunde is transported back to the period of his grandfather's time in Brazil with the help of Yemoja.
+
 ---------------------
 
-The Little Girl who sold the Sun (1999)	
+The Little Girl Who Sold the Sun (1999)	
 https://www.youtube.com/watch?v=LNcfJU6grrU&t=919s
 Djibril Diop Mambety
 
-------------------------
-
-Ceddo (1977)	
-https://www.youtube.com/watch?v=lR94YqLQ40w&t=787s
-Ousmane Sembene	
+La Petite Vendeuse de Soleil (or The Little Girl Who Sold the Sun) is a 1999 Senegalese short drama film, directed by Djibril Diop Mambéty which premiered posthumously after his death in 1998. La Petite Vendeuse de Soleil is a film exalting the lives and promise found among ordinary Senegalese.
 
 ------------------------
 
-Le Retraité (1991)	
+Le Retraité - Retired (1991)	
 https://www.youtube.com/watch?v=lUxDH1HFaiQ
-Gervais Mendo Ze	
+Gervais Mendo Ze
+
+Cameroonian film by Gervais Mendo Ze (1991), with leading actors such as the monument Daniel Ndo (Uncle Otsama), Josephine Ndagnou (Nta Zibi), Mom Hélène, etc.. really too many talents. "Will you come back to the village without money, without even a roof, you have become the laughing stock of the country."
 
 -----------------
 
@@ -583,29 +611,31 @@ Na Cidade Vazia - Hollow City (2004)
 https://www.youtube.com/watch?v=Lz_9EstYLn4
 Maria Joao Ganga	
 
+A group of children, fleeing the war, is taken to Luanda accompanied by a nun. When they reach the aeroplane, 12-year-old N'Dala decides to leave the group and to reconnoitre the city. The nun then starts her unceasing quest for the missing boy. N'Dala, only carrying a textile bag and a doll made of wire, walks through the busy streets filled with people and traffic. Later he finds the tranquility of the island off the coast, where he meets the old fisherman Antonio, with whom he becomes friends. Not much later, he meets the lively, whimsical Zé, who is a little older than he is. N'Dala starts to experience the city and its inhabitants as increasingly forbidding and he would most like to return to the countryside from whence he came. Then he meets Joka, a fringe figure who persuades him to help with a robbery in exchange for money. With this film, Maria Joao Ganga wanted to provide a realistic sketch of the bitter political situation in Angola. One of her most important motivations for making In the Empty City was to provide a picture of an African city without awakening feelings of a patronising sympathy or associations with the sensationalism of war.
+
 ----------------
 
 Neria (1993)	
-https://www.youtube.com/watch?v=M0Un8wyhOQ0
+https://www.youtube.com/watch?v=M0Un8wyhOQ0 or https://www.youtube.com/watch?v=sV6aQiUTEq8
 Godwin Mawuru	
 
----------------
-
-Neria (1993)	
-https://www.youtube.com/watch?v=M0Un8wyhOQ0&list=PL2KL6MBW5C7f1F5b8dP9JmWF0bYJyJP2v&index=85
-Godwin Mawuru	
+Neria is a Zimbabwean film made in 1993, written by the novelist Tsitsi Dangarembga. It is directed by Godwin Mawuru and the screenplay was written by Louise Riber. It is the highest-grossing film in Zimbabwean history. The film concerns the struggles of a woman in a suburb of the capital; Harare, Warren Park, in Zimbabwe when she is widowed after her husband is killed in an accident. Her husband's older brother takes advantage of the death of his younger brother, and uses the inheritance for self-benefit at the expense of Neria and her two children. Its soundtrack neria remains one of the most celebrated Zimbabwean songs. The soundtrack of the film was sung by Oliver Mtukudzi. Plot The film starts with portraying Neria and her husband Patrick painting their house while their son plays nearby. Soon Patrick asks to leave and the family looks generally happy. A neighbour, who is friend to Neria calls her and they exchange pleasantries. Soon Patrick's mother, who was dozing nearby starts calling Neria and she has to go tend to her. She asks for her son, and when Neria tells her that he has gone out, she laments to herself that Neria is not a good enough wife for her son, since she didn't ask her son to say bye to her.
 
 ---------------
 
 Yaaba (1989)	
 https://www.youtube.com/watch?v=Maw9zx_BnL4
-Idrissa Ouedraogo	
+Idrissa Ouedraogo
+
+Social drama which recounts life in a little village in West Africa. Bila is a young boy who together with his cousin Nopoko observes life around them. Yaaba means grandmother and is the name that Bila gives to Sana, an old woman who is shunned as a witch by the most of villagers who blame her for any ill that befalls them. Some attempts are made to attack Sana and drive her out of the village but Bila befriends and stands up for her and she gradually instills in him some of her serenity and wisdom.
 
 ----------------
 
 Badiaga: La vie de Betti Betti (1982)	
-https://www.youtube.com/watch?v=MlXa-Ug-010
+https://www.youtube.com/watch?v=MlXa-Ug-010 or https://www.youtube.com/watch?v=plVfsxsG5hc
 Jean Dikongue Pipa
+
+This is the story of Betti Betti, Cameroonian singer of the 70s, who ends up sinking into misery. Through his destiny, “Badiaga” is also the sad journey of Cameroonian artists thus revealed, reveals Jean Pierre Dikongue Pipa, its director. The Goethe room was full for the screening of this film released in 1982. From the outset, it appears as a plea for the improvement of the condition of the artist. Beti Beti's difficult childhood and ascension in the music world and misery at the end of the film sound like a lawsuit against the exploitation of musicians by their producers and other show organizers. By a harmonious mixture of sounds, background music and silences, the director brings to life the extent of the exploitation of the singer, illiterate in the film. We also note a recurrence of symbols, both in the gestures and on the body of the main characters. Symbols which also allow Badiaga, the heroine and her brother to recognize each other, even though they had been separated as children. Also to be saluted, the film's true work of memory, which involves stars of the time such as Emile Kangue, Sallé John, Jean Marie Ahanda, or Eko Roosevelt ... in the equally nostalgic setting of clothing fashions, brands of cars, streets of Douala and Yaoundé in the 1980s.
 
 ------------------
 
@@ -613,17 +643,23 @@ Guelwaar (1993)
 https://www.youtube.com/watch?v=_ARUNyjBjWQ
 Ousmane Sembene	
 
+Guelwaar (1993), a commentary on the fractious religious life of Senegal, tells of the confusion that arises when the bodies of a Muslim and a Catholic (Guelwaar) are switched at the morgue.
+
 --------------
 
 More Time (1993)
 https://www.youtube.com/watch?v=rhgBHc7tCtw
 Isaac Mabhikwa
 
+Thandi finds out the complexities of love, when David, the schoolboy Mister Charming, coolly sweeps her off her feet.
+
 ---------------
 
 Lumumba, Death of a Prophet (2000)	
 https://www.youtube.com/watch?v=nEwUdF9b4cg
-Raoul Peck	
+Raoul Peck
+
+The film is a creative documentary where biography and history, stories and archives create a frame around the figure of Lumumba, his political assassination, media and memory. It is a unique opportunity to examine, 50 years later, the life and legend of Lumumba.[2] The documentary is narrated by the director, Raoul Peck, as he reconstructs a story that interweaves his own personal experiences and the circumstances surrounding the murder of Lumumba. Peck is in Belgium, and uses shots of Brussels to establish his location and contrast with the archival footage he combines to tell Lumumba's story. The film is about absence; absence of a historical figure, absence of clarity about the events surrounding his death, and absence of a true historical construct. Even a true location is absent; he cannot get to Zaire, the topic of his film, but the majority of the archival footage and photos used are from Central Africa. Even if he were able to film in Zaire, he would be faced with an absence, so no matter his location he is still "filming from afar."
 
 ---------------
 
@@ -1197,6 +1233,10 @@ Edward Yang
 The Color of Pomegranates (1969)
 https://www.youtube.com/watch?v=26tEfblGH5I
 Sergei Parajanov
+
+Udju Azul di Yonta - The Blue Eyes of Yonta (1992)	
+https://www.youtube.com/watch?v=g8fmnwOByrM
+Flora Gomes
 
 ---------------
 ---------------
