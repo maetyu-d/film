@@ -978,6 +978,10 @@ Chris Austin, Gill Bond
 
 # Black Cinema
 
+Space is the Place (1974)
+https://www.youtube.com/watch?v=bCalqwsicls
+Sun Ra
+
 ----------
 ----------
 
@@ -1117,3 +1121,25 @@ The Color of Pomegranates (1969)
 https://www.youtube.com/watch?v=26tEfblGH5I
 Sergei Parajanov
 
+---------------
+---------------
+
+# Musical Contexts
+
+Symphony In Black - A Rhapsody of Negro Life (1935)
+https://youtu.be/LPD-8-l68L4
+Duke Ellington, Billie Holiday
+
+-----------------
+
+Cab Calloway's Jitterbug Party (1935)
+https://youtu.be/mMQVZYoNWIw
+Fred Waller
+
+------------------
+
+The Cry of Jazz (1959)
+https://youtu.be/6eFFKv5YMzI
+Edward O. Bland
+
+-------------
