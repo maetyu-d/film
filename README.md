@@ -92,7 +92,7 @@ Kin-dza-dza! is a 1986 Soviet sci-fi dystopian black comedy cult film released b
 ----------
 ----------
 
-# African Cinema
+# African Cinema (cinema made in Africa)
 
 ### [Afronauts (2014)](https://www.youtube.com/watch?v=lb3pu5jXWHU)
 * Genre: Science Fiction
@@ -115,6 +115,81 @@ On the 16th July 1969, America prepares to launch Apollo 11. Thousands of kilome
 Youths in Ibadan join other movements across Nigeria in a peaceful demonstration against the incessant record of rape cases. Tobi's camera accompanies the demonstration restlessly to reveal power play, confrontation of abuse of authority and reconciliation.
 
 - written and directed: Tobi Akinde
+
+----------
+
+Jean-Claude Bergeret	Le Cadavre Encerclé Kateb Yacine	Algeria	1963	
+https://www.youtube.com/watch?v=Q2wK7LMPkeI
+French
+
+Jean Antoine	La Rage d'Ecrire : Kateb Yacine	Algeria	1966	
+https://www.youtube.com/watch?v=GFXnwJvsapo&t=2093s
+French	
+
+Jean-Jacques Flori and Stephane Tchalgadjieff
+Fela Kuti- Music is the Weapon	Nigeria	1982	
+https://vimeo.com/206759023
+English
+
+Pierre Marie Dong	Demain Une Jour Nouveau	Gabon	1978	
+https://www.youtube.com/watch?v=u0t4iUqcGA0
+French	
+33
+Sarah Maldoror	Sambizanga	Congo	1972	
+https://www.youtube.com/watch?v=zH_aIENMwt8
+English
+
+William Greaves	
+The World's First Festival of Black Arts
+Senegal	1966	
+https://www.youtube.com/watch?v=q0d572P8U3I&t=1034s
+English
+
+Jean Pierre Dikongue-Pipa	La Prix de la Liberte	Cameroon	1978	
+https://www.filmingo.ch/en/films/250-le-prix-de-la-liberte
+French-English
+
+Kwaw Ansah	Heritage Africa	Ghana	1989	
+https://www.youtube.com/watch?v=ukoDTXBvVtU
+English
+
+The Victor Jarra Collective	Terror and the Time	Guyana	1977	
+https://www.youtube.com/watch?v=F9T-FgZTLtE
+English
+
+Shadi Abdel Salam	Al-mummia (The Mummy)	Egypt	1969	
+https://www.youtube.com/watch?v=RAikajWw2gQ
+Arabic-English
+
+Kwaw Ansah	Loved brewed in the African pot	Ghana	1980	
+https://www.youtube.com/watch?v=PnB4BqtkD9A
+English	
+
+Manthia Diawara & Thiong'o Ngugi-wa
+Sémbene: The Making of African Cinema
+Senegal	1994	
+https://www.youtube.com/watch?v=HJttJ_AZrZs
+English	
+
+Manthia Diawara	Glissant: One World in Relation	Martinique	2010	
+https://www.youtube.com/watch?v=aTNVe_BAELY&t=1445s
+English
+
+Djibril Diop Mambety	Badou Boy	Senegal	1970	
+https://www.youtube.com/watch?v=cGbOgFHqTpU&t=2718s
+French	
+
+Djibril Diop Mambety	Le Franc	Senegal	1994	
+https://www.youtube.com/watch?v=xy18qXFGsSs
+Wolof	
+
+Ousmane Sembene	Moolade	Senegal	2004	
+https://rarefilmm.com/2019/12/moolaade-2004/
+English	
+
+Oussama Fawzi	Fallen Angels Paradise	Egypt	1996	
+https://trakt.tv/movies/fallen-angels-paradise-2000
+English
 
 ----------
 ----------
