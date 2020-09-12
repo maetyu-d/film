@@ -349,11 +349,15 @@ Femme Villa Voiture Argent (1972)
 https://www.youtube.com/watch?v=xDfKtzBuskM
 Moustapha Alassane
 
+Ali is a modest civil servant who enjoys a pleasant life in town. One day, upon being forced by his parents to marry a woman he doesn't want, Ali is dragged into a vortex composed by "Women (Femmes), Cars (Voitures), Villas, Money (Argent)" all of which, in Niger, stand for social success. Longing for an increasingly luxurious way of life, in order to support habits he himself created, Ali is forced to steal and is arrested. When everyone else abandons him, his first wife reveals her loyalty and awaits his release. The film depicts the frantic search for consumer goods by the low middle classes of the African cities and it was, according to Véronique Cayla, director of the Centre national de la Cinématographie (France), of remarking importance for the youngsters back in those years.
+
 -----------------
 
 Tajouj (1977)	
 https://www.youtube.com/watch?v=3PMj4rhbHYA&feature=youtu.be
 Gadalla Gubara
+
+The film is set a hundred years back in the eastern part of Sudan in a place of total isolation. Tajouj is the beautiful cousin of a young tribal man who is deeply in love with her. He publicly declares his love for her in a song. The traditions of the tribe denounce such an act and as a consequence his uncle refuses his proposal of marriage. But after the young man departs and declares his repentance, the marriage is finally allowed. In the meantime, however, another man has staked his interest in Tajouj, which drives the young man to jealousy. This sets the stage for a series of transgressions which will result in tragedy and send the young man into exile as a wandering bard of the deserts.
 
 -----------------
 
@@ -361,11 +365,15 @@ Barakat Al-Sheikh (1998)
 https://www.youtube.com/watch?v=OxcmYCKiAZ8
 Gadalla Gubara	
 
+The film denounces the popular practice of witchcraft. Some impostors are able to deceive the villagers into believing that their Sheikh had murdered one of his disciples after discovering he had an affair with his wife. The Sheikh is driven from the village.
+
 -----------------
 
 Wechma - Traces (1971)	
 https://www.youtube.com/watch?v=4htg3P8faOo&t=739s
 Hamid Benani	
+
+The story of Massaoud, a rebellious young man, oppressed by both his family and the sclerotic society.
 
 ------------------
 
@@ -373,19 +381,17 @@ Faat Kiné (2000)
 https://www.youtube.com/watch?v=7B-cyoY8eAQ&t=103s
 Ousmane Sembene
 
+Made some 40 years on from his fine Dakar-set 'neo-realist' debut, Borom Saret, Sembène's film features a winning performance from Seye as the titular heroine, one of a breed of successful Senegalese women who have made their way to some kind of fulfilment despite the hangover arrogance, weakness and moral out-datenedness and corruption of her male peers. Using a central Dakar petrol station - which Kiné manages - as a social centre and an example of new Senegalese enterprise, Sembène applies his own version of stylised 'dialectics' to spin a lively, lusty and often funny and illuminating examination of social and economic change in Senegalese society. A marvelous film, offering the psychological insight of Rohmer into its familial story, while contextualising it with a wise, vibrant African optimism all Sembène's own.
+
 ---------
 
 Moi Un Noir (1958)	
 https://www.youtube.com/watch?v=7sSjojRxxeQ
 Jean Rouch
 
+"I, a Negro" depicts young Nigerien immigrants who left their country to find work in the Ivory Coast, in the Treichville quarter of Abidjan, the capital. These immigrants live in squalor in Treichville, envious of the bordering quarters of The Plateau (the business and industrial district) and the old African quarter of Adjame. The film traces a week in these immigrants' lives, blurring the line between their characters' routines and their own. Every morning, Tarzan, Eddy Constantine and Edward G. Robinson seek work in Treichville in hopes of getting the 20 francs that a bowl of soup costs them. They perform menial jobs as dockers carrying sacks and handy labor shipping supplies to Europe. At night, they drink away their sorrows in bars while dreaming about their idealized lives as their "movie" alter-egos, alternatively as an FBI Agent, a womanizing bachelor, a successful boxer, and even able to stand up to the white colonialists that seduce away their women. These dream-like sequences are shot in a poetic mode. Each day is introduced by an interstitial voice of god omniscient narration from Jean Rouch, providing a universal thematic distance to the movie's events. The film is book-ended by a narration directed at both Petit Jules and the audience from Edward G. Robinson fondly looking back on his childhood in Niger and concluding that his life is worthy of his dreams.
+
 ----------
-
-Change Your Style (2019)	
-https://www.youtube.com/watch?v=8uiwmMXHVjo
-Lanaire Aderemi	
-
------------
 
 Ceddo (1977)
 https://www.youtube.com/watch?v=9ipcync79CI
@@ -1036,6 +1042,12 @@ Milton Bryan, Menelik Shabazz
 House of Hunger (1983)	
 https://www.youtube.com/watch?v=LbW0SjamJh4
 Chris Austin, Gill Bond	
+
+----------
+
+Change Your Style (2019)	
+https://www.youtube.com/watch?v=8uiwmMXHVjo
+Lanaire Aderemi	
 
 ----------
 ----------
