@@ -1477,6 +1477,14 @@ Released on September 15th, 1914. Sometimes called the world's oldest cartoon (e
 
 ----------------
 
+Lichtspiel Opus I (1921)
+https://vimeo.com/262027844
+Walter Ruttmann
+
+Walther Ruttmann (1887 – 1941) was initially trained as an architect and painter; he served on the Eastern front during World War I, suffered “shell shock” (what is now known as post traumatic stress disorder), and on being released from the hospital abandoned painting to make films. As he was the son of a wealthy mercantilist, he had the financial means to become a film maker upon being released from the hospital, enabling him to work independently of UFA, the major German studio at the time. His first productions were abstract animated films, and were also the first fully animated cartoon work produced in Germany. Ruttmann’s titles for these works indicate their relationship to the synaesthetic heritage: Lichtspiel: Opus I was produced between 1919 and 1921. It premiered in April 1921, and was released for German theatrical distribution in 1922. It is the oldest fully abstract motion picture known to survive, using only animated geometric forms, arranged and shown without reference to any representational imagery; the first abstract films by Viking Eggeling and Hans Richter were not exhibited publically until 1923.
+
+----------------
+
 Steamboat Willie (1928)
 https://youtu.be/BBgghnQF6E4
 Walt Disney, Ub Iwerks
