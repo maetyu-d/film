@@ -312,6 +312,14 @@ Amaka Igwe
 Ahanna Okolo (Snake) is drawn into a web of organised crime, gang rivalry, passion when unforseen circumstances change the course of his otherwise happy childhood.
 
 ------------------
+
+I Told You So (1970)
+https://www.youtube.com/watch?v=0j9_cYIhGAY
+Egbert Adjesu
+
+This comedy tells the story about a father who refuses to agree to his daughter's marriage to a wealthy man. The story chronicles the conflict between a family in post-colonial Ghana as they struggle to choose between love and money.
+
+------------------
 	
 Ndeysaan - The Price of Forgiveness (2002)
 https://www.youtube.com/watch?v=_eqpwNEXEzs
