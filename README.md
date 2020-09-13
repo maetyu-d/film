@@ -1433,6 +1433,14 @@ Directed by V. Shantaram, Ayodhyecha Raja (The King of Ayodhya) was the first Ma
 
 ------------
 
+Siddheshwari (1989)
+https://www.youtube.com/watch?v=dBfY-vHSjlw
+Mani Kaul
+
+A film about the great thumri singer Siddheshwari Devi,who was born on August 8, 1902.  Breaking all conventional modes of biographical or documentary film making, this film becomes a work of transgression. It transgresses both home and dream. Like a sufi wanderer, it celebrates the life of exile.  No spaceholds, no truth encompasses, no identity is the final. Here is afilm that takes the 'documentary' non-representational to its limits, turning the fictional material natural to a biography into a presentation, and the objects and locations into an imaginative becoming of music. Siddheshwari Devi died on March 12, 1966.
+
+------------
+
 Ship of Theseus (2012)
 https://www.youtube.com/watch?v=2hKtIfNHAXc
 Anand Gandhi
