@@ -1463,4 +1463,32 @@ https://www.youtube.com/watch?v=Plla2Uyn_CM
 Iruvar is a 1997 Indian Tamil epic political drama film co-written, produced and directed by Mani Ratnam. The real-life rivalry between M.G. Ramachandran and Karunanidhi is given the Ratnam treatment, featuring a score composed by A. R. Rahman.
 
 --------------
+--------------
 
+# Animation/Experimental Animation
+
+--------------
+
+Gertie the Dinosaur (1914)
+https://youtu.be/TGXC8gXOPoU
+Winsor McCay
+
+Released on September 15th, 1914. Sometimes called the world's oldest cartoon (erroneously), it is still the first to be created using keyframe animation. This movie required Winsor McCay and his assistant John A. Fitzsimmons (who traced the backgrounds) to create 10,000 drawings, which they inked on rice paper and mounted on cardboard. Gertie is a dinosaur based on the Brontosaurus (nowadays known as Apatosaurus) skeleton in the American Museum of Natural History. McCay's employer, William Randolph Hearst, was displeased with McCay's success outside of the newspapers, and used his contractual power to reduce McCay's stage activities.
+
+----------------
+
+Steamboat Willie (1928)
+https://youtu.be/BBgghnQF6E4
+Walt Disney, Ub Iwerks
+
+Steamboat Willie is notable for being the first Disney cartoon with synchronized sound, as well as the first cartoon to feature a fully post-produced soundtrack which distinguished it from earlier sound cartoons such as Inkwell Studios' Song Car-Tunes (1924–1927) and Van Beuren Studios' Dinner Time (1928).
+
+---------------
+
+Fantasia (1940)
+https://www.youtube.com/watch?v=b756FPiLlp8 (part of Night on Bald Mountain scene only)
+Ben Sharpsteen, Samuel Armstrong, James Algar, Bill Roberts, Paul Satterfield, Hamilton Luske, Jim Handley, Ford Beebe, T. Hee, Norman Ferguson, Wilfred Jackson
+
+Fantasia is a 1940 American animated film, produced by Walt Disney Productions and given a wide release by RKO Radio Pictures. The film consists of eight animated segments set to pieces of classical music conducted by Leopold Stokowski; seven of which are performed by the Philadelphia Orchestra. Music critic and composer Deems Taylor acts as the film's Master of Ceremonies, who introduces each segment in live action interstitial scenes. The soundtrack was recorded using multiple audio channels and reproduced with Fantasound, a pioneering sound reproduction system that made Fantasia the first commercial film shown in stereophonic sound. 
+
+--------------
