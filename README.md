@@ -1,4 +1,4 @@
-Thanks to: Culture Art Society, Exmilitai, the Film Space group, etc.
+Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, etc.
 
 ---------
 ---------
@@ -1411,7 +1411,9 @@ Contains:
 ----------------------
 ----------------------
 
-# Indian Cinema
+# Indian Cinema 
+
+(based partially on a list by Shoma A. Chatterji)
 
 ------------
 
