@@ -1407,3 +1407,42 @@ Contains:
 * That Day We Sang, by Victoria Wood
 * The Producers
 * The Third Man
+
+----------------------
+----------------------
+
+# Indian Cinema
+
+------------
+
+Jamai Babu/Jamaibabu (1931) [silent]
+https://youtu.be/CMum2cm2Mh8
+Kalipada Das
+
+This comedy has a country bumpkin hero Gobardhan (Das) visiting his parents-in-law in Calcutta. Making a 'No Nuisance' sign for an address, he gets lost trying to find his friend Amal's (Baurah) room. His subsequent adventures take him to famous locations including Howrah Bridge, the Victoria Memorial and the Maidan. Gobardhan eventually finds his in-laws, feigns illness to prolong his stay, is beaten up when he tries to sneak into his wife's (Radharani) room and gets mistaken for a thief.
+
+------------
+
+Ayodhyecha Raja (1932)
+https://www.youtube.com/watch?v=-1PpxV7W4hc
+V. Shantaram
+
+Directed by V. Shantaram, Ayodhyecha Raja (The King of Ayodhya) was the first Marathi talkie released in 1932. It is based on the mythological story of Raja Harishchandra of Ayodhya and his test by sage Vishwamitra, as recounted in Valmiki's epic, Ramayana. This film was the first talkie of the Prabhat Film Company as well as for its director, V. Shantaram, and may be the earliest surviving talkie of Indian cinema (Alam Ara which has been lost).
+
+------------
+
+Ship of Theseus (2012)
+https://www.youtube.com/watch?v=2hKtIfNHAXc
+Anand Gandhi
+
+If the parts of a ship are replaced,bit-by-bit, is it still the same ship? An unusual photographer grapples with the loss of her intuitive brilliance as an aftermath of a clinical procedure; an erudite monk confronting an ethical dilemma with a long held ideology, has to choose between principle and death; and a young stockbroker, following the trail of a stolen kidney, learns how intricate morality could be. Following the separate strands of their philosophical journeys, and their eventual convergence, this film explores questions of identity, justice, beauty, meaning and death.
+
+--------------
+
+Iruvar (1997)
+https://www.youtube.com/watch?v=Plla2Uyn_CM
+
+Iruvar is a 1997 Indian Tamil epic political drama film co-written, produced and directed by Mani Ratnam. The real-life rivalry between M.G. Ramachandran and Karunanidhi is given the Ratnam treatment, featuring a score composed by A. R. Rahman.
+
+--------------
+
