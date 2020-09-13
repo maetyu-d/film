@@ -1505,4 +1505,4 @@ Mothlight (1963)
 https://youtu.be/Yt3nDgnC7M8
 Stan Brakhage
 
-A "found foliage" film composed of insects, leaves, and other detritus sandwiched between two strips of perforated tape. (note - should have the sound of the film reel perforations -- "tktktktktk -- emulating the flapping of moth wings at the same time as each frame)
+A "found foliage" film composed of insects, leaves, and other detritus sandwiched between two strips of perforated tape. (note - should have the sound of the film reel perforations -- "tktktktktk" -- emulating the flapping of moth wings at the same time as each frame)
