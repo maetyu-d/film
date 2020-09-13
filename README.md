@@ -1501,6 +1501,14 @@ Fantasia is a 1940 American animated film, produced by Walt Disney Productions a
 
 --------------
 
+Catalog (1961)
+https://youtu.be/TbV7loKp69s
+John Whitney
+
+Having made the first computer animation in film (Vertigo), Catalog is John Whitney's demo reel of work created with his analog computer/film camera system that he built from a WWII anti-aircraft gun sight.
+
+--------------
+
 Mothlight (1963)
 https://youtu.be/Yt3nDgnC7M8
 Stan Brakhage
