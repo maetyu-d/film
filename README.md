@@ -1500,3 +1500,9 @@ Ben Sharpsteen, Samuel Armstrong, James Algar, Bill Roberts, Paul Satterfield, H
 Fantasia is a 1940 American animated film, produced by Walt Disney Productions and given a wide release by RKO Radio Pictures. The film consists of eight animated segments set to pieces of classical music conducted by Leopold Stokowski; seven of which are performed by the Philadelphia Orchestra. Music critic and composer Deems Taylor acts as the film's Master of Ceremonies, who introduces each segment in live action interstitial scenes. The soundtrack was recorded using multiple audio channels and reproduced with Fantasound, a pioneering sound reproduction system that made Fantasia the first commercial film shown in stereophonic sound. 
 
 --------------
+
+Mothlight (1963)
+https://youtu.be/Yt3nDgnC7M8
+Stan Brakhage
+
+A "found foliage" film composed of insects, leaves, and other detritus sandwiched between two strips of perforated tape. (note - should have the sound of the film reel perforations -- "tktktktktk -- emulating the flapping of moth wings at the same time as each frame)
