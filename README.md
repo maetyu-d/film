@@ -643,7 +643,7 @@ Guelwaar (1993)
 https://www.youtube.com/watch?v=_ARUNyjBjWQ
 Ousmane Sembene	
 
-Guelwaar (1993), a commentary on the fractious religious life of Senegal, tells of the confusion that arises when the bodies of a Muslim and a Catholic (Guelwaar) are switched at the morgue.
+Guelwaar, a commentary on the fractious religious life of Senegal, tells of the confusion that arises when the bodies of a Muslim and a Catholic (Guelwaar) are switched at the morgue.
 
 --------------
 
@@ -667,18 +667,23 @@ Everyone's child (1996)
 https://www.youtube.com/watch?v=NF989Iy930M
 Tsitsi Dangarembga	
 
+Two teenagers struggle with superstition and ignorance as they attempt to make ends meet after the death of their parents from AIDS. Left destitute after their uncle gives their cattle and plow in payment of their father's debts, Tamari and Itai must somehow care for their younger siblings. In an attempt to find work in the city, Itai leaves the village. He soon discovers that there are no jobs, and his life quickly becomes one of crime, gangs, drugs, and jail. Tamari, with no means to feed her family, sells her body to the local shopkeeper for food and clothing. When Tamari and Itai's younger brother is killed in a fire, the villagers realize that is does "take a village to raise a child".
+
 ----------------------
 
 Harragas (2009)	
 https://www.youtube.com/watch?v=NxOgab1p6vg
 Merzak Allouache	
 
+Set in the northern Algerian port city of Mostaganem. The title refers to the hordes of refugees, the 'Harragas', who smuggle themselves out of the country via any means possible. Here we meet one such group, Rachid, Nasser and Imene who pay a smuggler, Hassan, to take them to Spain in his rickety boat. Along with a group of African and Arab migrants, they are risking all they have to cross the stormy Straits.
+
 --------------------
 
 Tableau Ferraille (1997)	
 https://www.youtube.com/watch?v=nxt4SKzC_WI&t=0
-s
 Moussa Sène Absa	
+
+Tells the story of an idealistic young politician's rise and fall. Daam, a well-intentioned but vacillating European-trained politician must choose between two social paradigms exemplified by his two wives. The first, Gagnesiri, is the village beauty, who waits patiently for Daam. Unfortunately, they are unable to conceive a child, so Daam takes European-educated Kiné, who is eager to get ahead by marrying a politician. Daam becomes involved in a shady business deal with Président, a local businessman; when the details are made public, he is forced out in disgrace.
 
 -------------------------
 	
@@ -686,11 +691,15 @@ Le retour d'un Aventurier - Return of An adventurer (1966)
 https://www.youtube.com/watch?v=O1eAckJuI44&t=0s
 Moustapha Alassane
 
+With Ibrahim Yacouba, Zalika Souley, Abdou Nani, Djingarey Maiga. One of Alassane’s most celebrated films, this homage to the American Western follows a band of wannabe outlaws who ransack a Nigerien village.
+
 ---------------------
 
 Mapantsula (1987-1988)
 https://www.youtube.com/watch?v=o5c_QXkHkPQ
 Thomas Mogotlane	
+
+Mapantsula tells the story of Panic, a petty gangster who inevitably becomes caught up in the growing anti-apartheid struggle and has to choose between individual gain and a united stand against the system.
 
 ---------------------
 
@@ -698,11 +707,15 @@ Genesis (1999)
 https://www.youtube.com/watch?v=p5lukL31nt4
 Cheick Oumar Sissoko	
 
+The biblical story of Jacob and Esau.
+
 ---------------------
 
 GUIMBA THE TYRANT (1995)
 https://www.youtube.com/watch?v=zUMw4O59DIk
 Cheick Oumar Sissoko	
+
+Documents the rise and fall of a cruel and despotic village chief Guimba, and his son Jangine in a fictional village in the Sahel of Mali.
 
 ---------------------
 
@@ -710,11 +723,15 @@ The Dove's Lost Necklace (1990)
 https://www.youtube.com/watch?v=PAjMSH7dQxs
 Nacer Khemir	
 
+This second feature in Nacer Khemir's "Desert Trilogy" is a visually ravishing folktale reminiscent of THE THOUSAND AND ONE NIGHTS. The story revolves around Hassan, who is studying Arabic calligraphy from a grand master. Coming across a fragment of manuscript, Hassan goes in search of the missing pieces, believing that once he finds them, he will learn the secrets of love. With the help of Zin, a lovers' go-between, he meets the beautiful Aziz, Princess of Samarkand. After encountering wars, a battle between false prophets and an ancient curse, he learns that an entire lifetime would not suffice for him to learn the many dimensions of love. Tunisian director Nacer Khemir, also a poet, painter and professional storyteller, notes: "The film takes place in Moslem Andalusia of the 11th century. But it's not a question of reconstituting a given time and place, but rather of summoning up the reflection of a forgotten garden, and out of a yearning for peace, so difficult to protect from barbarians and from destructive fanaticisms. Andalusia has been the meeting place of many cultures, a living dialog of the peoples and religions whose traces can still be deciphered in texts, music and gardens all the way from the Atlantic to the Red Sea. This is not an Andalusian love story, but Andalusia as the very essence of love, through its perfumes, poetry and gardens."
+
 ---------------------
 
 Brewed in the African Pot (1981)	
 https://www.youtube.com/watch?v=PnB4BqtkD9A
 Kwaw Ansah	
+
+Love collides with social class and colonialism when Aba Appiah, born to privilege, falls in love with Joe Quansah, son of a fisherman. Her father, retired civil servant Kofi Appiah, has other plans for her, and seeks to block their marriage. The resulting conflict has complex and unexpected consequences.
 
 -----------------
 
@@ -722,35 +739,39 @@ Road to Accra (1983)
 https://www.youtube.com/watch?v=WVq7YGMEops
 King Ampaw
 
+Addey is a lorry driver and an industrious family man who makes ends meet by plying his trade between Accra, the capital city, and his village , Kukurantumi. After losing his job for reasons beyond his control, he plots a marriage between his daughter, Abena, and an affluent businessman but she refuses the union because she loves another. Abena disobeys her father Addey and, with Bob, the poor young man she loves, elopes to Accra where things worsen.
+
 -------------------
 
 Poko (1981)	
 https://www.youtube.com/watch?v=qHgVQL9pUuc	
 Idrissa Ouedraogo
 
+Poko follows a young pregnant woman who dies after failing to reach medical facilities whilst being transported on a cart. The film highlighted the fact that despite paying their taxes, the poor gain little real help in day to day necessities from the government.
+
 --------------------
 
-Hyenes (1992)	
+Hyenas (1992)	
 https://www.youtube.com/watch?v=qpjvioL3QV4
 Djibril Diop Mambéty
 
----------------------
-
-Badou Boy (1970)
-https://www.youtube.com/watch?v=cGbOgFHqTpU
-Djibril Diop Mambéty
+Hyenas (Hyenas) tells the story of Linguere Ramatou, an aging, wealthy woman who revisits her home village of Colobane. Linguere offers a disturbing proposition to the people of Colobane and lavishes luxuries upon them to persuade them. This embittered woman, "as rich as the World Bank", will bestow upon Colobane a fortune in exchange for the murder of Dramaan Drameh, a local shopkeeper who abandoned her after a love affair and her illegitimate pregnancy when she was seventeen.
 
 ---------------------
 
-Come Back Africa (1959)	
+Come Back, Africa (1959)	
 https://www.youtube.com/watch?v=R6ImHlT5Jig
 Lionel Rogosin	
+
+Come Back, Africa chronicles the life of Zachariah, a black South African living under the rule of the harsh apartheid government in 1959.
 
 ------------------
 
 La montagne de Baya (1997)	
 https://www.youtube.com/watch?v=S0RWxsTCFBs
-Azzeddine Meddour	
+Azzeddine Meddour
+
+In Kabylia at the start of the twentieth century, an entire village was forced to flee French oppression to take refuge in an arid mountain. Baya, the daughter of the patron saint of the village, receives a louis d'or purse: the ddiya, the price of the assassination of her husband by her rival Saïd, son of Bachagha3. A Berber widow in the 19th century, the heroine, Baya, fights to resuscitate her village destroyed by the colonists, buries her two loves and gets up, despite everything, to revive ancestral myths. His community would like this money to be used to pay war taxes in order to reclaim their land. Baya thus embodies a certain form of honor which will motivate the peasants to build a village in the mountains.
 
 -------------------
 	
@@ -758,11 +779,15 @@ Chronique des annees de braise - chronicle of the years of fire (1975)
 https://www.youtube.com/watch?v=s6MuVXQ9jWk
 Mohammed Lakhdar-Hamina	
 
+Chronique des annees de braise  depicts the Algerian War of Independence as seen through the eyes of a peasant.
+
 -------------------
 
 Quartier Mozart (1992)	
 https://www.youtube.com/watch?v=sab2ILrRBAg
 Jean Pierre Bekolo	
+
+A young girl crosses paths with a witch who has the power to satisfy her curiosity about men by changing her into one.
 
 ---------------------
 
@@ -770,11 +795,15 @@ La Citadelle - El Kalaa (1988)
 https://www.youtube.com/watch?v=Cchbpv9e5kg
 Mohamed Chouikh
 
+La Citadelle is a 1988 Algerian film written and directed by Mohamed Chouikh. A tragi-comedy set against the background of sexual inequality, it traces the amorous adventures of the young Kaddour, whose arranged marriage is intended as a lesson taught to him by his elders. Starring Djilali Ain-Tedeles, it won the prize for Best Cinematography (Allel Yahyaoui) at the 11th FESPACO held at Ouagadougou in 1989.
+
 --------------------
 
 Hassan Terro (1968)
 https://www.youtube.com/watch?v=6O-phvD1W5Y
 Mohammed Lakhdar-Hamina
+
+Living in Algiers in 1956 is no bed of roses. Especially when you are a meek little fellow called Hassan who, to stay out of trouble, is all things to all people and whose only act of "bravery" is to (try to) rule his wife with a rod of iron. Alas for him not only does his wife show resistance but the cowardly little man happens to be mistaken for... a dangerous terrorist!
 
 ------------------------
 	
@@ -782,11 +811,15 @@ Bal Poussiere - Dancing in the Dust (1988)
 https://www.youtube.com/watch?v=SJJwTfQJK8I
 Henri Duparc
 
+Demi-Dieu (Demigod) is a wealthy farmer and village head with five wives. When he decides to marry a sixth, young Binta, to have one for each day of the week (apart from Sunday, the day of rest), his five wives become discontent. Binta, a modern, self-confident woman, doesn't want to be kept in line. Soon there is conflict with her husband as well as with the other five wives, creating comic relief.
+
 ----------------
 
 La Noire - Black girl (u.d.)
 https://www.youtube.com/watch?v=sptKbtXIn4o
 Ousmane Sembene	
+
+Ousmane Sembène was one of the greatest and most groundbreaking filmmakers who ever lived, as well as the most renowned African director of the twentieth century—and yet his name still deserves to be better known in the rest of the world. He made his feature debut in 1966 with the brilliant and stirring Black Girl. Sembène, who was also an acclaimed novelist in his native Senegal, transforms a deceptively simple plot—about a young Senegalese woman who moves to France to work for a wealthy white family and finds that life in their small apartment becomes a prison, both figuratively and literally—into a complexly layered critique of the lingering colonialist mind-set of a supposedly postcolonial world. Featuring a moving central performance by M’Bissine Thérèse Diop, Black Girl is a harrowing human drama as well as a radical political statement—and one of the essential films of the 1960s.
 
 ----------------
 
@@ -794,11 +827,15 @@ Les Tam Tams Se Sont Tus (1972)
 https://www.youtube.com/watch?v=SSY6EEAlnsI
 Phillipe Mory	
 
+Abraham is a young sculptor who does not quite understand the changing world in which he lives. During a visit to the village, he falls for the youngest wife of his uncle. They form a relationship but are discovered and Abraham flees to the city.
+
 ---------------
 
 Insan - Human Being (1994)	
 https://www.youtube.com/watch?v=SwWaC-yvWjE&t=713s
 Ibrahim Shaddad	
+
+Sudanese filmmaker, Ibrahim Shaddad provides a dramatic and powerful account of the trials and tribulations of a Sudanese villager in an alien, large city. Shot entirely without dialogue, the film's innovative use of sound helps tell the story of a shepherd who leaves his wife and herd to settle in a nearby town. Since its premiere at the Alexandria Film Festival, Insan has been shown in a number of festivals in the Middle East and Europe. This film is a prime example of experimental Arab cinema.
 
 ------------
 
@@ -806,11 +843,15 @@ Xala (1975)
 https://www.youtube.com/watch?v=t-a15ZLKxjM&t=5479s
 Ousmane Sembene, Thierno Faty Sow
 
+A corrupt politician is cursed with impotence on the night of his third wedding after embezzling 100 tons of rice.
+
 -------------
 
 Rachida	Ageria (2002)	
 https://www.youtube.com/watch?v=TmhUo1_jHSM
 Yamina Bachir
+
+A look at terrorism in Algeria through the eyes of Rachida, a teacher in one of the school districts.
 
 ----------------
 
@@ -818,11 +859,15 @@ Sindiely (1965)
 https://www.youtube.com/watch?v=TObW3DRK_V4
 Paulin Soumanou Vieyra	
 
+Arranged marriages are parodied here in the style of a desert pantomime, with the story of a father greedy for money who wants to marry off his daughter, Sindiely, by force. Two contenders for Sindiely come to blows and Father must retrace his steps.
+
 ---------------
 
 Sarraounia (1986)	
 https://archive.org/details/Sarraounia
 Med Hondo	
+
+Sarraounia takes place in Niger and the surrounding region of the Sahel. It begins with the initiation and establishment of a young girl as queen of the Aznas. The young queen, Sarraounia, becomes an accomplished warrior when she defends her tribe from an enemy tribe. Accomplished in archery and herbalism, she is a renowned sorceress. Meanwhile, French colonialists Paul Voulet and Julien Chanoine set out to conquer new lands for the French colonial empire. As they advance across the land they rape women and leave burning villages in their wake
 
 -------------
 	
@@ -830,11 +875,15 @@ La Colere de Dieu - Anger of the Gods (2003)
 https://www.youtube.com/watch?v=tyUIZJYkTTs&t=904s
 Idrissa Ouedraogo
 
+After ruling for 20 years, the King is on his deathbed. He summons his son, Tanga, and his brother, Halyare, to avoid a bloody battle for the succession. However, despite his last will, the King cannot prevent Tanga from taking power and instating a reign of terror. A few years later, the tyrant learns that Salam is not his son, contrary to what he believed up until then. A personal battle begins between the two men. One of them must die. A Greek tragedy against an African background.
+
 ----------
 
 Au nom du Christ (1993)	
 https://www.youtube.com/watch?v=u-lK0ncVZaE
 Roger Gnoan M'Bala
+
+A West African pig farmer has a religious vision, wherein he is told that he'll be Magloire the First, a prophet of Christ. He then sets out to rid his local villagers of superstition and instead save them for Jesus.
 
 -----------
 
@@ -842,11 +891,15 @@ Touki Bouki (1973)
 https://www.youtube.com/watch?v=Z9p_fMbzDdk
 Djibril Diop Mambety	
 
+Mory, a cowherd, and Anta, a university student, try to make money in order to go to Paris and leave their boring past behind.
+
 -------------
 
 La Vie est Belle (1987)	
 https://www.youtube.com/watch?v=UIbUBxM_Ka0
 Benoît Lamy, Mweze Ngangura	
+
+Kourou comes from a village to Kinshasa, Zaire's capital and the center of World Beat; music is in his heart and he has big dreams. Right away he gets a job as a domestic for Mamou, the loud wife of a club owner, and he falls in love with Kabibi, a virginal young woman who wants to be a secretary. Meanwhile, Nvouandou, the club owner, childless after twenty years of marriage, wants a second wife and determines to marry Kabibi. Mamou pretends to approve of the match, but behind her husband's back, she pushes Kabibi into the arms of Kourou. Can Kourou win Kabibi's hand and fulfill his dreams of being a singer; can Mamou recapture the affections of Nvouandou?
 
 -------------
 
@@ -854,11 +907,15 @@ Borom Sarret (1963)
 https://www.youtube.com/watch?v=VdaC4Oa_z80
 Ousmane Sembene
 
+Boron Sarret is arguably the first (feature) film made by a black African. It illustrates poverty in Senegal, particularly for the working man.
+
 --------------
 
 Pièces d'Identités - Pieces of Identity (1998)	
 https://www.youtube.com/watch?v=vfJvUZv1uwU
 Mweze Ngangura	
+
+A Congonese king arrives in Brussels in search of his long-lost daughter.
 
 --------------
 
@@ -866,11 +923,15 @@ L'Afrance - As a Man (2001)
 https://www.youtube.com/watch?v=VoIast31FOE
 Alain Gomis	
 
+El Hadj is studying in Paris. He is one of the young Senegalese men who have come to Paris since the French colony became independent to get a good education so that he can serve his fatherland on his return. Unexpectedly he is suddenly confronted by a problem with his residence papers, just because he has arranged an extension too late. His pleasant life filled with good prospects has gone in one fell swoop. He faces a dilemma. He can stay illegally in France, the country where he feels at home, where he has his friends, has fallen in love and can drink water from the tap. Or he can return (without graduating) to the 3rd-world country of Senegal to use the knowledge he has acquired. It is not only a practical choice. It comes down to the question of who he is, who he thought he could be. Gomis' impressive feature début looks at the theme of uprooting both on an existential and emotional level. The everyday confrontation with a different culture makes an apparently simple project difficult and chaotic. Gomis: 'Exile means distancing oneself: abroad you are confronted with yourself. Who are we and which of our thoughts can resist the obtrusiveness of the other world? Probably only that which is really our own essence.'
+
 ---------------
 
-Petit Lumiere - Little Light (2003)	
+Petite Lumiere - Little Light (2003)	
 https://www.youtube.com/watch?v=vPdjWvZZUGw
 Alain Gomis	
+
+In Dakar, Senegal, Fatima is a little girl of eight years old. When she opens the refrigerator, she wonders if the light stays on when the door closes. She discovers that no. So, Fatima goes down the street, closes her eyes, then opens them, then closes them. Do people still exist when their eyes are closed?
 
 ---------------
 
@@ -878,11 +939,15 @@ Faro La Reine Des Eaux (2007)
 https://www.youtube.com/watch?v=w3KMnTGKRrQ
 Salif Traoré	
 
+Zanga is driven out of his village. After many years, he returns to find out who is father is. At the moment of his arrival, something happens that the villagers interpret as the river spirit Faro's angry reaction to the bastard's coming
+
 ---------------
 
 Vent du Sud (1975)	
 https://www.youtube.com/watch?v=WOvugUSEedc
 Mohammed Slim-Riad
+
+TBC
 
 -----------------
 
@@ -890,11 +955,15 @@ The Campus Queen (2003)
 https://www.youtube.com/watch?v=WoWu5cZwjhg
 Tunde Kelani	
 
+The Campus Queen is a 2004 Nollywood musical directed by Tunde Kelani. The Campus Queen is a film accompanied by much music, dance and activism, thus depicting the lifestyle of students in university campuses. It also highlights the urge for power and supremacy by student clubs.
+
 -----------------
 
 Road to Accra (1983)	
 https://www.youtube.com/watch?v=WVq7YGMEops
 Kukurantumi 
+
+Addey is a lorry driver and an industrious family man who makes ends meet by plying his trade between Accra, the capital city, and his village , Kukurantumi.
 
 -----------
 
@@ -902,11 +971,15 @@ Finye - The Win	(1982)
 https://www.youtube.com/watch?v=Wyj-cu6oBfM
 Souleman Cissé	
 
+Finye tackles the generation gap in post-colonial West Africa. Its heroine is the pot smoking daughter of a provincial military governor who falls in love with a fellow university student, the descendent of one of Mali's chiefs.
+
 ------------
 
 Dakan (1997)	
 https://www.youtube.com/watch?v=x12jOpmGQ20
 Mohammed Camara
+
+Dakan (Destiny) is a 1997 French/Guinean drama film written and directed by Mohamed Camara. It premiered at the Cannes Film Festival. Telling the story of two young men struggling with their love for each other, it has been described as the first West African feature film to deal with homosexuality.
 
 ------------
 
@@ -914,11 +987,15 @@ Théatre Urbain (2017)
 https://www.youtube.com/watch?v=xmasxo9AD1s&t=11s
 Nelson Makengo
 
+In her next film, Barbie would like to wear the belt that Kimpa Vita wore during her immolation in 1706. She arrives in Kinshasa to get one. In the Congolese capital, Captain America takes care of her security and Djo S, who boasts of having been fixed on every blockbuster film shot in Kinshasa, is his personal guide. In her quest, Barbie rediscovers the story of Kimpa Vita, that Congolese heroine more than one calls Joan of Arc of Africa.
+
 --------------
 
 Samba Traore (1992)	
 https://www.youtube.com/watch?v=XRz9nXVIyow
 Idrissa Ouedraogo
+
+Samba Traore returns to his village flush with funds. Soon enough he manages to charm the beautiful Saratou into marrying him and, along with another friend, builds the first bar their village has ever seen. But his conscience keeps nagging him and the police are on the lookout for the "gas station murderer."
 
 ----------------
 
@@ -926,11 +1003,15 @@ Sia Le Reve du Python (2001)
 https://www.youtube.com/watch?v=y-gG3Goz8eE&t=637s
 Dani Kouyaté	
 
+Every year the most beautiful girl will be sacrificed to the Python God. When a girl named Sia is the next to be sacrificed, she hides in the house of the village idiot, a man who goes around shouting hyper-aggressive criticisms against everything. Sia is found by the soldiers but the army commander had for some time prepared a revolt against the emperor and saves Sia on the way. Will Sia reveals the terrible secret she learned about the Python God ?
+
 -----------------
 
 Keita! L'heritage du griot - Keita! Voice of the Griot (1994)
 https://www.youtube.com/watch?v=y4oY4d5f66E
 Dani Kouyaté	
+
+A storyteller named Djeliba comes to the town of a young boy named Mabo with promises that he will reveal the origin of the boy's ancestry.
 
 -------------------
 
@@ -938,11 +1019,15 @@ The silences of the place (1994)
 https://www.youtube.com/watch?v=YbeNlh8UU30
 Moufida Tlatli	
 
+The Silences of the Palace is a 1994 Tunisian film co-written and directed by Moufida Tlatli. The film investigates issues of gender, class and sexuality in the Arab world through the lives of two generations of women at a prince's palace. Seen through the eyes of an attractive young wedding singer, it exposes the sexual and social servitude of a group of women in an elaborate palace during the French Protectorate in Tunisia. Tlatli wrote the film in response to her own mother's sudden severe illness and her subsequent realization of how little she knew about her life.
+
 ---------------------
 
-Geedkha Nolosha - Tree of Life (1986)	
+Geedka Nolosha - Tree of Life (1986)	
 https://www.youtube.com/watch?v=S3WASFnKrXM
 Abdulkadir Ahmed Said	
+
+In a small town, a nomad cuts down a tree he needs to use. However, he accidentally chops down the wrong tree, felling the tree that sustains life itself. When the latter tree falls, all life disappears. The nomad then finds himself in the middle of a desert that he does not recognize, and he tries to work his way out of it. During this particular quest, he comes across a small tree that is in the process of dying and opts instead to save this one
 
 -----------------------
 
@@ -950,11 +1035,15 @@ Pumzi (2009)
 https://vimeo.com/46891859
 Wanuri Kahiu	
 
+Pumzi is a Kenyan science-fiction short film written and directed by Wanuri Kahiu. It was screened at the 2010 Sundance Film Festival as part of its New African Cinema program
+
 ----------------------
 	
 Mandabi - The Money Order (1968)	
 https://www.youtube.com/watch?v=yUgA7gGlPhc
 Ousmane Sembene
+
+Mandabi is a 1968 film written and directed by Ousmane Sembène. The film is based on Sembène's novel The Money-Order. It is the director's first film in his native Wolof language. Since most of the Senegalese population did not understand French, Sembène wanted to create cinema for Wolof speakers. This is the first full-length African language film from West Africa
 
 --------------------------
 
@@ -962,11 +1051,15 @@ Buud Yam (1997)
 https://www.youtube.com/watch?v=YYkgd0vS2Lo&t=157s
 Gaston Kabore
 
+In an early 19th century African village, Wend Kuuni - a young man, lives with his adopted family after his mother was killed as a witch. When Pughneere - his adopted sister - becomes ill, the villagers suspect Wend Kuuni. In order to save Pughneere's life (and his own) he must set out on a journey to find a healer. His quest brings him in contact with people around him and is a journey of self-discovery.
+
 -------------------------
 
 Guimba the Tyrant (1995)	
 https://www.youtube.com/watch?v=zUMw4O59DIk
 Cheick Oumar Sissoko	
+
+Documents the rise and fall of a cruel and despotic village chief Guimba, and his son Jangine in a fictional village in the Sahel of Mali.
 
 ----------
 ----------
