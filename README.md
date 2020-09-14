@@ -1571,3 +1571,11 @@ Nicolas Roeg, Donald Cammell
 The same might also be said of Nic Roeg’s Performance (1970) and its gender fluid boundaries that constitute the film’s plot in this subversion of the British gangster genre?
 
 ----------
+
+Nighthawks (1978)
+https://www.youtube.com/watch?v=fcDBLmKSK-E (extract)
+Ron Peck, Paul Hallam
+
+Widely heralded as the first gay film produced and commercially released in Britain, Nighthawks (1978) features the story of a man who leads a double life, as a respectable geography teacher by day; and by night, a gay man hanging out in gay bars, looking for a longterm relationship, but usually encountering only one-night stands. He eventually becomes uneasy with this dual existence and feels that he is being unfair on his pupils by evading their questions. At last he confesses to a female colleague and opens up to his class, but then receives a severe rebuke from the school headmaster.
+
+----------
