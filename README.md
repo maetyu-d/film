@@ -1525,6 +1525,8 @@ A "found foliage" film composed of insects, leaves, and other detritus sandwiche
 Once A Jolly Swagman (1948)
 https://www.youtube.com/watch?v=xZlNOB5qTH0
 
+Medhurst [2005](http://sro.sussex.ac.uk/id/eprint/30808/) suggests that in British films of the 1940s and 1960s, there were only visual and verbal clues which would give away a character’s or actor’s “gayness”. These could be a costume, a glance, a sibilant delivery of a line, but would form a viewer’s set of identifiers, both a visual and verbal vocabulary of how to identify themselves in characters on the big screen. For Medhurst, films such as Once a Jolly Swagman (1948), as well as Mr Perrin and Mr Traill (1948), and High Treason (1951) all offer up clues for a spectator who is “in the know”. 
+
 ------------
 
 Victim (1961)
