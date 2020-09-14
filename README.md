@@ -1557,3 +1557,16 @@ In the The Loneliness Of The Long Distance Runner (1962), as well as This Sporti
 
 ------------
 
+Staircase (1969)
+https://www.youtube.com/watch?v=SExvrheLjjE
+
+In the years after the Sexual Offences Act was passed in Britain, Staircase (Stanley Donen, 1969), featuring Richard Burton and Rex Harrison as a couple of “flaming queen” hairdressers, drew the critical ire of Roger Ebert for its portrayal of Harry and Charlie as a parodic “sideshow attraction”. Ebert comments further that we’re “not asked to watch a movie about homosexuals, but a movie about Harrison and Burton playing homosexuals”.
+
+-----------
+
+Performance (1970)
+https://www.youtube.com/watch?v=ZUm8Il-pFCE
+
+The same might also be said of Nic Roeg’s Performance (1970) and its gender fluid boundaries that constitute the film’s plot in this subversion of the British gangster genre?
+
+----------
