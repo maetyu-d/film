@@ -1640,3 +1640,29 @@ https://www.youtube.com/watch?v=-8Ng-DlJU84
 Derek Jarman
 
 For Richard Dyer, the “look” of Jarman's films is significant; a reflection of the “surface” that gay men in Britain had to manage and navigate.
+
+--------------------------
+--------------------------
+
+# British Horror
+
+--------------------------
+
+Dracula/Horror of Dracula (1958)
+https://www.dailymotion.com/video/x23tddh
+Terence Fisher
+
+--------------------------
+
+The Abominable Dr. Phibes (1971)
+https://www.youtube.com/watch?v=9QfsQB_He0g
+Basil Kirchin
+
+-------------
+
+Under the Skin (2013)
+https://www.amazon.co.uk/Under-Skin-Scarlett-Johansson/dp/B00LL4DWPE/ref=tmm_aiv_swatch_0?_encoding=UTF8&qid=&sr=
+Jonathan Glazer
+(an extraordinary soundtrack but I can't find a better source for this currently)
+
+-------
