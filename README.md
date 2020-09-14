@@ -1,4 +1,4 @@
-This list is by no means exhaustive and perhaps can never hope to be; there is always more to find and see. Topics are in no particular order. Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, Adam Vaughan/The Conversation, etc. 
+This list is by no means exhaustive and perhaps can be; there is always more to find and see. Topics are in no particular order and most of the brief descriptions are scraped (a few are original). Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, Adam Vaughan/The Conversation, etc. 
 
 ---------
 ---------
@@ -1078,11 +1078,15 @@ Handsworth Songs (1986)
 https://www.youtube.com/watch?v=8gK25q4m_i4
 John Akomfrah
 
+Handsworth Songs was made for the Channel 4 series Britain: The Lie of the Land. The film went on win seven international awards including the BFI John Grierson Award for Best Documentary. The techniques for which Black Audio Film Collective became recognised are already apparent: a multi-stranded narrative, visual experimentation, a mosaic of sound, interspersed with newsreel, and still photographs of black people's lives. It's interesting and informative to listen to the direct accounts of people caught up in the riots, whether bystanders or active participants. But the implicit aim of Handsworth Songs, as with other BAFC productions, for example Who Needs A Heart (1991), is not truth, exactly, but personal reflection and reaction to events. In place of an authorial voice-over, telling us how to interpret events or who and what is important, we are left to find our own way through the 'evidence' - to weigh poetry with newsreel, to linger on stylistic details, to find subconscious links between rows of babies sleeping on the ground and the funeral of Mrs Cynthia Jarrett. The style of filmmaking is a deliberate response to the fractured narrative of the riots. Handsworth Songs is often described as a 'filmed essay', perhaps because the overall impression is of a discursive, literary journey. There are moments of poetic beauty, such as the sequence of photographs documenting key moments in the lives of a family. The photographs mounted like a series of boards in an art gallery, slowly rotate as the camera drifts through them. Portraits are from the fifties, faces full of optimism and laughter. When the documentary moves on to interviewing the older generation, one searches the faces for familiar signs. The second part of the documentary begins inside a television studio. The audience waits patiently for the programme to begin watching the cameramen adjust their cameras. They listen to the bustle of studio managers and take note as the director explains the running order to the panel of distinguished guests. This extremely effective sequence demonstrates how the stories of the riots were 'arranged' and the people become spectators. The soundtrack is one of the astonishing successes of Handsworth Songs.
+
 -------------------
 
 Flight of the Swan (1992)	
 https://www.youtube.com/watch?v=oTZDx_Vn4cI
 Ngozi Onwurah	
+
+A young girl leaves her Nigerian village to attend a ballet school in England. Fascinated by Tchaikovsky's Swan Lake, she dreams of performing as lead ballerina Princess Odette, but the girls in her close-minded ballet school mock her ideas of a 'black swan'.
 
 ------------
 
@@ -1090,11 +1094,15 @@ White men are cracking up (1994)
 https://player.bfi.org.uk/free/film/watch-white-men-are-cracking-up-1994-online
 Ngozi Onwurah	
 
+Masie Blue is an enigmatic Black Widow figure under investigation by detective Margrave for her involvement in the suicides of successful white men. Through the blurred lines of perception and reality, the myth of the black feminine mystique is explored under the guise of a murder mystery. Written by playwright Bonnie Greer, the film explores the fetishisation of Black women as a manifestation of white male insecurity.
+
 -------------------
 
 Kindred (2018)	
 https://player.bfi.org.uk/free/film/watch-kindred-2018-online
 Samona Olanipekun	
+
+Samona Olanipekun explores the concepts of home, identity and belonging, from the starting point of the theme of globalisation. Originally commissioned by the Barbican as part of their season titled The Art of Change.
 
 ----------------------
 
@@ -1102,11 +1110,15 @@ Appreciation (2019)
 https://player.bfi.org.uk/free/film/watch-appreciation-2019-online
 Tomisin Adepeju	
 
+An African Pentecostal Pastor questions everything she believes after a life-changing event.
+
 ---------------------
 
 Cedar, Wood and Silk (1995)	
 https://player.bfi.org.uk/free/film/watch-cedar-wood-silk-1995-online
 Jillian Li-Sue	
+
+Insightful exploration of the relationship between a Jamaican mother and her British-born daughter.
 
 ---------------------
 
@@ -1114,11 +1126,15 @@ Blues is my middle name (1999)
 https://player.bfi.org.uk/free/film/watch-blues-is-my-middle-name-1999-online
 Winta Yohannes	
 
+London 1961. Alex, a jazz musician, and Faith, a singer, share an uneasy life together. With the relationship on the rocks, Faith is willing to try to win back Alex by any means. Alas her attempts at making Alex jealous by leaving the club with a stranger backfire. Assuming that Faith has found a new beau Alex leaves their flat not knowing that Faith has been waiting for him.
+
 -----------------------
 
 The Homecoming: A Short Film about Ajamu (1995)	
 https://player.bfi.org.uk/free/film/watch-the-homecoming-a-short-film-about-ajamu-1995-online
 Topher Campbell	
+
+Black, gay photographer, Ajamu (Ikwe-Tyehimba, b.1963), returns to his home town, Huddersfield, for an exhibition of his work which explores personal, sexual and cultural identity. A fast-moving drama-documentary that tells the story of one young artist's exploration of identity. Through his photography, Ajamu takes the viewer on an alternative and humorous journey through Brixton, back to a place called home.
 
 -----------------------------
 
@@ -1126,11 +1142,15 @@ We the Ragamuffin (1992)
 https://player.bfi.org.uk/free/film/watch-we-the-ragamuffin-1992-online
 Julian Henriques	
 
+Filled with undeniable style, the vibrations of local sound systems and rhythmic Jamaican patois, Julian Henriques' urban odyssey is an energetic declaration of British Caribbean Dancehall culture, shot on location on the North Peckham Estate. The cast of local artists glide between realism and whimsy using improvised dialogue and musical performance, with the titular Ragamuffins using musical innovation to sidestep the negative aspects of urban life. This film is regarded as a prelude to Henriques' ragga musical Babymother.
+
 ----------------------
 
 Gay Black Group (1983)	
-https://player.bfi.org.uk/free/film/watch-gay-black-group-1983-online
+https://player.bfi.org.uk/free/film/watch-gay-black-group-1983-online or https://www.youtube.com/watch?v=7boj3TUFgLI
 Isaac Julien	
+
+The formation of the Gay Black Group was a landmark in gay black history. Meeting at Gay's the Word, a bookshop in Bloomsbury, London, it provided a sounding board and support for gay and black communities of the 1980s. Sitting on the outside of both by virtue of their sexuality or ethicity the group attempted to negotiate a path through the complexities of cultural and sexual identity. In this film, members of the group talk to Paula Ahluwalia about their experiences. One of the interviewees is the film-maker Isaac Julien, then a student at St Martin's School of Art. In 1991 his film Young Soul Rebels won the critics prize at the Cannes Film Festival.
 
 ------------------------
 
@@ -1138,11 +1158,15 @@ Babylon (1980)
 https://www.youtube.com/watch?v=PUKzUNhhzDo
 Franco Rosso	
 
+The movie centres around Brindsley Forde's character Blue. He fronts a reggae sound system based in West London. The film captures the trials and tribulations of young black youths in troubled London in the early eighties.
+
 -------------------
 
 Colonial Gods (2009)	
 https://www.youtube.com/watch?v=9rHXE9hAg-c&t=8s
 Dee Rees	
+
+A complicated friendship between a Somali man and Nigerian man unfolds against the chaos of gentrification and displacement in a small immigrant community in Cardiff, Wales known as Tiger Bay.
 
 ------------------
 
@@ -1589,6 +1613,12 @@ https://ok.ru/video/668295039686
 Stephen Frears
 
 In Thatcher-era Britain, debates around class, race and sexuality were heated and found their way into films of the period. Maurice (1987) and My Beautiful Laundrette (1985) both spoke to a contemporary social context which, through an increasing sense of British nationalism, created groups of outsiders based around racism and homophobia. It is telling, then, that against this decidedly bleak cultural backdrop these two films offer something of the utopian in their representations of university society Edwardian England and an aspirational Pakistani in 1980s London respectively – “an English Arcadia” as Michael Williams puts it.
+
+-------------
+
+Gay Black Group (1983)	
+https://player.bfi.org.uk/free/film/watch-gay-black-group-1983-online
+Isaac Julien
 
 -------------
 
