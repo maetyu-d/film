@@ -1566,6 +1566,7 @@ In the years after the Sexual Offences Act was passed in Britain, Staircase (Sta
 
 Performance (1970)
 https://www.youtube.com/watch?v=ZUm8Il-pFCE
+Nicolas Roeg, Donald Cammell
 
 The same might also be said of Nic Roeg’s Performance (1970) and its gender fluid boundaries that constitute the film’s plot in this subversion of the British gangster genre?
 
