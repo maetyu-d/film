@@ -1,4 +1,4 @@
-Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, Adam Vaughan/The Conversation, etc.
+This list is by no means exhaustive and perhaps can never hope to be. Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, Adam Vaughan/The Conversation, etc. 
 
 ---------
 ---------
