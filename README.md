@@ -1524,6 +1524,7 @@ A "found foliage" film composed of insects, leaves, and other detritus sandwiche
 
 Once A Jolly Swagman (1948)
 https://www.youtube.com/watch?v=xZlNOB5qTH0
+Jack Lee
 
 Medhurst [(2005)](http://sro.sussex.ac.uk/id/eprint/30808/) suggests that in British films of the 1940s and 1960s, there were only visual and verbal clues which would give away a character’s or actor’s “gayness”. These could be a costume, a glance, a sibilant delivery of a line, but would form a viewer’s set of identifiers, both a visual and verbal vocabulary of how to identify themselves in characters on the big screen. For Medhurst, films such as Once a Jolly Swagman (1948), as well as Mr Perrin and Mr Traill (1948), and High Treason (1951) all offer up clues for a spectator who is “in the know”. 
 
@@ -1531,6 +1532,7 @@ Medhurst [(2005)](http://sro.sussex.ac.uk/id/eprint/30808/) suggests that in Bri
 
 Victim (1961)
 https://www.youtube.com/watch?v=s2xUteY_emM
+Basil Dearden
 
 Victim is a 1961 British neo noir suspense film directed by Basil Dearden and starring Dirk Bogarde and Sylvia Syms. It was the first English-language film to use the word "homosexual" and the first commercial film in Britain to deal openly with the need for legal reform concerning homosexuality and was in accord with the recommendations of the Wolfenden Committee, which had examined homosexual offences and prostitution and reported in 1957. The film has attracted much criticism and debate, largely in terms of its liberal prescriptions and its ‘timid’ handling of a controversial theme. 
 
@@ -1538,5 +1540,20 @@ Victim is a 1961 British neo noir suspense film directed by Basil Dearden and st
 
 The Servant (1963)
 https://ok.ru/video/1048705632948
+Joseph Losey
 
 Rarely screened at queer festivals, despite its credentials, The Servant (1963) is based on a short story by Robin Maughan and comes after Bogarde had, two years previously, taken on a genuinely brave role as a homosexual barrister fighting blackmailers in Victim (1961). The BFI says: "Dirk Bogarde gives one of his finest performances as Barrett, a gentleman’s gentleman. This classic tale of master and servant develops into a disturbing psychodrama and the homoerotic sub-text is plain to see. Douglas Slocombe’s brilliant cinematography captures the claustrophobic mood (especially wonderful in its use of mirrors in key scenes) and great performances by Wendy Craig and Sarah Miles."
+
+--------------
+
+The Loneliness Of The Long Distance Runner (1962)
+https://www.amazon.com/gp/video/detail/B088SGNVSJ/ref=atv_dl_rdr
+Tony Richardson
+(small rental fee)
+
+This film is an example of the kind of social-realist dramas - also known as kitchen-sink dramas - that found popularity in the late 1950s and 1960s. The genre often dealt with gritty issues affecting Britain at the time and this is no exception. The film follows a young, working-class man who has been sent to a borstal, where he is awarded certain privileges thanks to his talent for cross-country running. As he prepares for an important race against a local public school, he must decide whom he is really running for - himself or the ambitious borstal governor. 
+
+In the The Loneliness Of The Long Distance Runner (1962), as well as This Sporting Life (Anderson, 1963), If… (Anderson, 1968), and Sunday Bloody Sunday (Schlesinger, 1971), we see male central characters who – Griffiths [(2006)](https://books.google.co.uk/books/about/British_Queer_Cinema.html?id=cHlHa3sQpB8C&redir_esc=y) suggests in his history of Queer Cinema - “find themselves trapped, symbolically reflect[ing] both the experiences of their respective directors, and the general dilemma of being queer in British society at the time”.
+
+------------
+
