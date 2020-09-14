@@ -1609,4 +1609,4 @@ Blue (1993)
 https://www.youtube.com/watch?v=-8Ng-DlJU84
 Derek Jarman
 
-For Richard Dyer, the “look” of Jarman's films is significant; a reflection of the “surface” that homosexuals in Britain had to manage and navigate.
+For Richard Dyer, the “look” of Jarman's films is significant; a reflection of the “surface” that gay men in Britain had to manage and navigate.
