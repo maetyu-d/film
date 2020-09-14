@@ -1579,3 +1579,15 @@ Ron Peck, Paul Hallam
 Widely heralded as the first gay film produced and commercially released in Britain, Nighthawks (1978) features the story of a man who leads a double life, as a respectable geography teacher by day; and by night, a gay man hanging out in gay bars, looking for a longterm relationship, but usually encountering only one-night stands. He eventually becomes uneasy with this dual existence and feels that he is being unfair on his pupils by evading their questions. At last he confesses to a female colleague and opens up to his class, but then receives a severe rebuke from the school headmaster.
 
 ----------
+
+Maurice (1987)
+https://www.youtube.com/watch?v=V-bCAOhyi3Y
+James Ivory
+
+My Beautiful Laundrette (1985)
+https://ok.ru/video/668295039686
+Stephen Frears
+
+In Thatcher-era Britain, debates around class, race and sexuality were heated and found their way into films of the period. Maurice (1987) and My Beautiful Laundrette (1985) both spoke to a contemporary social context which, through an increasing sense of British nationalism, created groups of outsiders based around racism and homophobia. It is telling, then, that against this decidedly bleak cultural backdrop these two films offer something of the utopian in their representations of university society Edwardian England and an aspirational Pakistani in 1980s London respectively – “an English Arcadia” as Michael Williams puts it.
+
+-------------
