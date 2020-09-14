@@ -1,4 +1,4 @@
-Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, etc.
+Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, Adam Vaughan/The Conversation, etc.
 
 ---------
 ---------
@@ -1591,3 +1591,22 @@ Stephen Frears
 In Thatcher-era Britain, debates around class, race and sexuality were heated and found their way into films of the period. Maurice (1987) and My Beautiful Laundrette (1985) both spoke to a contemporary social context which, through an increasing sense of British nationalism, created groups of outsiders based around racism and homophobia. It is telling, then, that against this decidedly bleak cultural backdrop these two films offer something of the utopian in their representations of university society Edwardian England and an aspirational Pakistani in 1980s London respectively – “an English Arcadia” as Michael Williams puts it.
 
 -------------
+
+Sebastiane (1976)
+https://archive.org/details/Sebastiane
+Derek Jarman, Paul Humfress
+
+The Angelic Conversation (1985) 
+https://player.bfi.org.uk/subscription/film/watch-the-angelic-conversation-1985-online
+Derek Jarman
+(free 14 day trial of BFI Player)
+
+The Garden (1990)
+https://archive.org/details/thegardenderekjarman1990
+Derek Jarman
+
+Blue (1993)
+https://www.youtube.com/watch?v=-8Ng-DlJU84
+Derek Jarman
+
+For Richard Dyer, the “look” of Jarman's films is significant; a reflection of the “surface” that homosexuals in Britain had to manage and navigate.
