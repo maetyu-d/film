@@ -1514,3 +1514,21 @@ https://youtu.be/Yt3nDgnC7M8
 Stan Brakhage
 
 A "found foliage" film composed of insects, leaves, and other detritus sandwiched between two strips of perforated tape. (note - should have the sound of the film reel perforations -- "tktktktktk" -- emulating the flapping of moth wings at the same time as each frame)
+
+--------------
+--------------
+
+# Queer Cinema in Britain
+
+--------
+
+Once A Jolly Swagman (1948)
+https://www.youtube.com/watch?v=xZlNOB5qTH0
+
+Victim (1961)
+https://www.youtube.com/watch?v=s2xUteY_emM
+
+The Servant (1963)
+https://ok.ru/video/1048705632948
+
+Rarely screened at queer festivals, despite its credentials, The Servant (1963) is based on a short story by Robin Maughan and comes after Bogarde had, two years previously, taken on a genuinely brave role as a homosexual barrister fighting blackmailers in Victim (1961). The BFI says: "Dirk Bogarde gives one of his finest performances as Barrett, a gentleman’s gentleman. This classic tale of master and servant develops into a disturbing psychodrama and the homoerotic sub-text is plain to see. Douglas Slocombe’s brilliant cinematography captures the claustrophobic mood (especially wonderful in its use of mirrors in key scenes) and great performances by Wendy Craig and Sarah Miles."
