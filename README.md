@@ -1532,6 +1532,8 @@ Medhurst [2005](http://sro.sussex.ac.uk/id/eprint/30808/) suggests that in Briti
 Victim (1961)
 https://www.youtube.com/watch?v=s2xUteY_emM
 
+Victim is a 1961 British neo noir suspense film directed by Basil Dearden and starring Dirk Bogarde and Sylvia Syms. It was the first English-language film to use the word "homosexual" and the first commercial film in Britain to deal openly with the need for legal reform concerning homosexuality and was in accord with the recommendations of the Wolfenden Committee, which had examined homosexual offences and prostitution and reported in 1957. The film has attracted much criticism and debate, largely in terms of its liberal prescriptions and its ‘timid’ handling of a controversial theme. 
+
 ------------
 
 The Servant (1963)
