@@ -1,4 +1,6 @@
-This list is by no means exhaustive and perhaps can be; there is always more to find and see. Topics are in no particular order and most of the brief descriptions are scraped (a few are original). Almost all films are openly accessible and none, knowingly, violate copyright (all are hosted externally). Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, BFI, Adam Vaughan/The Conversation, etc. 
+This list is by no means exhaustive and perhaps never can be; there is always more to find and see. Topics are in no particular order and most of the brief descriptions are scraped (a few are original). Almost all of the films listed here are openly accessible and none, knowingly, violate copyright (all are hosted externally and only external links are provided, in good faith). 
+
+Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, BFI, Adam Vaughan/The Conversation, etc. 
 
 ---------
 ---------
