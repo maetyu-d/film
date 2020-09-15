@@ -1467,6 +1467,14 @@ Directed by V. Shantaram, Ayodhyecha Raja (The King of Ayodhya) was the first Ma
 
 ------------
 
+Sholay (1975)
+https://www.dailymotion.com/video/x6bdk31
+Ramesh Sippy
+
+After his family is murdered by a notorious and ruthless bandit, a former police officer enlists the services of two outlaws to capture the bandit.
+
+------------
+
 Siddheshwari (1989)
 https://www.youtube.com/watch?v=dBfY-vHSjlw
 Mani Kaul
@@ -1659,6 +1667,13 @@ Terence Fisher
 The Abominable Dr. Phibes (1971)
 https://www.youtube.com/watch?v=9QfsQB_He0g
 Basil Kirchin
+
+-------------
+
+Demons of the Mind 
+https://ok.ru/video/922500008449
+
+A physician discovers that two children are being kept virtually imprisoned in their house by their father. He investigates, and discovers a web of sex, incest, and Satanic possession.
 
 -------------
 
