@@ -1222,6 +1222,13 @@ https://www.youtube.com/watch?v=bCalqwsicls
 Sun Ra
 
 ----------
+
+DOCS TO WATCH: #BLACKLIVESMATTER
+https://dochouse.org/online/news/docs-watch-blacklivesmatter
+
+A series of films curated by Bertha DocHouse Screen
+
+----------
 ----------
 
 # Iranian Cinema
