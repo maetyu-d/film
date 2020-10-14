@@ -47,8 +47,8 @@ financing—both from Europe and the Gulf States.
 
 Readings
 
-Corrigan, Timothy. A Short Guide to Writing about Film
-Gugler, Josef, ed. Film in the Middle East and North Africa
+* Corrigan, Timothy. A Short Guide to Writing about Film
+* Gugler, Josef, ed. Film in the Middle East and North Africa
 
 -------------
 
