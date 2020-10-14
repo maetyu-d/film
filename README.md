@@ -2,6 +2,23 @@ This list is by no means exhaustive and perhaps never can be; there is always mo
 
 Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, BFI, Adam Vaughan/The Conversation, etc. 
 
+Current contents:
+
+* [D. Starr's Middle Eastern Cinema Syllabus](https://github.com/matdwlv/film/blob/master/README.md#d-starrs-middle-eastern-cinema-syllabus-at-cornell-nes-2793
+* [Palestinian Cinema](https://github.com/matdwlv/film/blob/master/README.md#palestinian-cinema)
+* [Soviet Era and Eastern European Sci-Fi](https://github.com/matdwlv/film/blob/master/README.md#soviet-era-and-eastern-european-sci-fi)
+* [African Cinema](https://github.com/matdwlv/film/blob/master/README.md#african-cinema)
+* [Black Film from Britain](https://github.com/matdwlv/film/blob/master/README.md#black-film-infrom-britain)
+* [Black Cinema](https://github.com/matdwlv/film/blob/master/README.md#black-cinema)
+* [Iranian Cinema](https://github.com/matdwlv/film/blob/master/README.md#iranian-cinema)
+* [Mic'd Bodies](https://github.com/matdwlv/film/blob/master/README.md#micd-bodies)
+* [Other](https://github.com/matdwlv/film/blob/master/README.md#other)
+* [Musical Contexts](https://github.com/matdwlv/film/blob/master/README.md#musical-contexts)
+* [Indian Cinema](https://github.com/matdwlv/film/blob/master/README.md#indian-cinema)
+* [Animation and Experimental Animation](https://github.com/matdwlv/film/blob/master/README.md#animationexperimental-animation)
+* [Queer Cinema in Britain](https://github.com/matdwlv/film/blob/master/README.md#queer-cinema-in-britain)
+* [British Horror](https://github.com/matdwlv/film/blob/master/README.md#british-horror)
+
 ---------
 ---------
 
