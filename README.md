@@ -12,12 +12,12 @@ Current contents:
 * [Black Cinema](https://github.com/matdwlv/film/blob/master/README.md#black-cinema)
 * [Iranian Cinema](https://github.com/matdwlv/film/blob/master/README.md#iranian-cinema)
 * [Mic'd Bodies](https://github.com/matdwlv/film/blob/master/README.md#micd-bodies)
-* [Other](https://github.com/matdwlv/film/blob/master/README.md#other)
 * [Musical Contexts](https://github.com/matdwlv/film/blob/master/README.md#musical-contexts)
 * [Indian Cinema](https://github.com/matdwlv/film/blob/master/README.md#indian-cinema)
 * [Animation and Experimental Animation](https://github.com/matdwlv/film/blob/master/README.md#animationexperimental-animation)
 * [Queer Cinema in Britain](https://github.com/matdwlv/film/blob/master/README.md#queer-cinema-in-britain)
 * [British Horror](https://github.com/matdwlv/film/blob/master/README.md#british-horror)
+* [Other](https://github.com/matdwlv/film/blob/master/README.md#other)
 
 ---------
 ---------
