@@ -5,7 +5,7 @@ Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatte
 ---------
 ---------
 
-D. Starr's Middle Eastern Cinema syllabus at Cornell
+# D. Starr's Middle Eastern Cinema syllabus at Cornell (NES 2793)
 
 This course offers an introduction to films produced in the Middle East. In this class we will
 view films from the Arab world, including North Africa and the Eastern Mediterranean, as well
