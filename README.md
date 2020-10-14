@@ -1,6 +1,6 @@
 This list is by no means exhaustive and perhaps never can be; there is always more to find and see. Topics are in no particular order and most of the brief descriptions are scraped (a few are original).
 
-Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, BFI, Adam Vaughan/The Conversation, etc. 
+Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatterji, BFI, Adam Vaughan/The Conversation, D. Starr, etc. 
 
 Current contents:
 
