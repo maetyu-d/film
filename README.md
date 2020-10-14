@@ -5,12 +5,267 @@ Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatte
 ---------
 ---------
 
+D. Starr's Middle Eastern Cinema syllabus at Cornell
+
+This course offers an introduction to films produced in the Middle East. In this class we will
+view films from the Arab world, including North Africa and the Eastern Mediterranean, as well
+as from Israel, Iran, and Turkey. Readings will provide background on the particular cultural
+and historical contexts in which the films are produced, and the aesthetic traditions from which
+they emerge and to which they refer. Readings will also serve to familiarize students with
+approaches to critically interpreting visual media. All films will be screened with English
+subtitles.
+
+Film industries in the Middle East, as in much of the rest of the world, emerged out of efforts
+at the national level. In the Arab world and Israel, the film industries reflect upon struggles of
+national self-determination. The Iranian film industry underwent significant changes following
+the Islamic Revolution of 1979. We will consider the significance of these national rubrics and
+how they have shaped the work of filmmakers throughout the Middle East.
+
+But, films reach beyond the boundaries of the nation, and so, we will also consider how these
+films transcend national borders. On the one hand we will consider limit factors, like
+censorship, and the role of language and dialect on film viewership and distribution. And, on
+the other hand, we will consider external forces, such as the influence of foreign film markets
+in Europe and North America on filmmakers in the Middle East, as well as the effects of foreign
+financing—both from Europe and the Gulf States. 
+
+Readings
+
+Corrigan, Timothy. A Short Guide to Writing about Film
+Gugler, Josef, ed. Film in the Middle East and North Africa
+
+-------------
+
+Schedule
+
+-----------
+
+Battle of Algiers [Algeria, 1965]
+https://www.youtube.com/watch?v=zpn4Htfrv88
+Dir. Gillo Pontecorvo (121 min)
+
+Readings: 
+Gugler, “Creative Responses to Conflict” in Gugler, p. 1-36.
+Corrigan, A Short Guide, Chapter 1
+
+------------
+
+Omar Gatlato [Algeria, 1976]
+https://youtu.be/B7Nb_leKW0I
+Dir. Merzak Allouache (92 min)
+
+Readings:
+Armes, “From State Production to Cinema d’Auteur in Algeria,” in
+Gugler, pp. 294-306.
+Armes, [book on] Omar Gatlato 
+
+---------
+
+A Door to the Sky [Morocco, 1989]
+https://www.youtube.com/watch?v=ik5y5XOZy6Y
+Dir. Farida Benlyazid (107 min)
+
+Readings: 
+
+Dwyer, “A National Cinema with Large Ambitions,” in Gugler, pp. 325-338.
+Martin, “Bab al-Sama Maftouh / A Door to the Sky” in Dönmez-Colin, pp. 123-134
+Corrigan, A Short Guide, Chapter 2.
+
+---------
+
+Bedwin Hacker [Tunisia, 2003]
+https://www.youtube.com/watch?v=smi2J9ofAUc
+Dir. Nadia El Fani (99 min)
+
+Readings: 
+Martin, “Cinema and State in Tunisia,” in Gugler, pp. 271-284.
+Gugler, “Bedwin Hacker (Nadia El Fani): A Hacker Challenges
+Western Domination of the Global Media,” in Gulger, pp. 285-
+293.
+
+---------
+
+Hollywood on the Nile, [France 2005] 
+http://www.film-documentaire.fr/4DACTION/w_fiche_film/11151_1 (not yet found)
+Dir. S. Boukhemal (52 min)
+
+Readings:
+Corrigan, A Short Guide, Chapter 3.
+
+---------
+
+Alexandria, Why? [Egypt, 1978]
+https://www.netflix.com/gb/title/60001801 (Netflix)
+Dir. Yusuf Chahine (133 min)
+
+Readings: 
+Armbrust, “Political Film in Egypt,” in Gugler, 228-252
+
+---------
+
+Terrorism and Kebab [Egypt, 1992]
+https://vimeo.com/87915277
+Dir. Sherif Arafa (105 min)
+
+Readings:
+Corrigan, A Short Guide, Chapter 4.
+
+---------
+
+A Suspended Life [Lebanon, 1984] 
+https://www.worldcat.org/title/suspended-life-ghazl-al-banat/oclc/798383680 [not yet found]
+Dir. Jocelyn Saab (90 min)
+
+Readings: 
+Khatib, “Lebanese Cinema and the Representation of War,” in Gugler, 134-146
+
+---------
+
+Passion [Syria, 2005] 
+https://www.youtube.com/watch?v=R_XeW0PID88
+Dir. Muhammad Malas (98 min)
+
+Readings: 
+Wedeen, “Tolerated Parodies of Politics in Syrian Cinema,” in Gugler, 104-112. 
+
+---------
+
+A History of Israeli Cinema, part 1 [Israel, 2009]
+https://www.youtube.com/watch?v=ikxZ_Yg2u_U
+Dir. Raphaël Nadjari (104 min)
+
+---------
+
+In Between (Bar Bahar) [Israel, 2016]
+https://www.dailymotion.com/video/x69w0ua
+https://www.dailymotion.com/video/x69w0ub
+Dir. Maysaloun Hamoud. (103 min)
+
+---------
+
+The Wild Pear Tree [Turkey, 2018]
+https://vimeo.com/ondemand/twpt [Vimeo rental]
+Dir. Nuri Bilge Ceylan (188 min)
+
+---------
+
+Working Woman [Israel, 2018]
+https://www.imdb.com/title/tt8844204/ [not yet found]
+Dir. Michal Aviad (93 min)
+
+---------
+
+The House on Chelouche Street [Israel, 1973]
+https://www.dailymotion.com/video/x3hf1j4
+https://www.dailymotion.com/video/x3hf1j3
+Dir. Moshe Mizrahi (110 min)
+
+Readings:
+Gertz and Munk, “Israeli Cinema Engaging the Conflict,” in Gugler, 154-166.
+
+---------
+
+The Footnote [Israel, 2011] 
+https://www.imdb.com/title/tt1445520/ [not yet found]
+Dir. Josef Cedar (106 min)
+
+---------
+
+The Yacoubian Building [Egypt, 2006]
+https://www.youtube.com/watch?v=_P7WGYfp198
+or
+https://www.youtube.com/watch?v=OMm0HL_grE4
+Dir. Marwan Hamed (161 min)
+
+---------
+
+Remake, Remix, Rip-Off: About Copy Culture and Turkish Pop Cinema [Turkey/Germany, 2014] 
+https://letterboxd.com/film/remake-remix-rip-off/ [not yet found]
+Dir. Cem Kaya.
+
+Perhaps also: 
+
+Dünyayı Kurtaran Adam (aka Turkish Star Wars) [Turkey, 1982]
+https://www.youtube.com/watch?v=arpH88Mx3z4
+
+Readings:
+Arslan, Introduction to Cinema in Turkey, 1-22
+
+---------
+
+Umut (Hope) [Turkey, 1972] 
+https://www.youtube.com/watch?v=Nzy0mSmKYD0
+Dir. Yilmaz Güney (93 min.)
+
+Readings: 
+Dönmez-Colin, “Umut / Hope,” in Dönmez-Colin, pp. 41-50 (BB).
+
+---------
+
+Mustang [Turkey, 2015]
+https://www.youtube.com/watch?v=GcSqrX5x6Js
+Dir. Denize Gamze Ergüven (97 min)
+
+---------
+
+Iran: A Cinematographic Revolution [Iran, 2007]
+https://www.youtube.com/watch?v=bftit2lMEtM
+Dir. Nader Homayoun (98 min)
+
+Readings:
+Egan, “Regime Critics Confront Censorship in Iranian Cinema,” in Gugler, 37-62.
+
+---------
+
+Taste of Cherry [Iran, 1997]
+https://www.youtube.com/watch?v=yvSpZQIrMfM
+Dir. Abbas Kiarostami (95 min)
+
+---------
+
+Marriage of the Blessed [Iran, 1989]
+https://www.youtube.com/watch?v=j9mfMPZixOs
+Dir. Mohsen Makhmalbaf (75 min)
+
+Readings: 
+
+Egan, “Marriage of the Blessed (Mohsen Makhmalbaf): Wounds of War and the Betrayal of the Revolution,” Gugler, 75-84
+
+---------
+
+Under the Skin of the City [Iran 2001]
+https://farsiland.com/movies/under-the-skin-of-the-city/#
+Dir. Rakhshan Bani-Etemad (93 min)
+
+Readings: 
+Cobbey, “Under the Skin of the City (Rakhshan Bani-Etemad): Under the Surface Contrasts, in Gugler, 63-74.
+
+---------
+
+A Separation [Iran, 2011] 
+https://www.youtube.com/watch?v=jwjzztIFHWI
+Dir. Asghar Farhadi (123 min)
+
+---------
+
+Capernum [Lebanon, 2018] 
+https://www.imdb.com/title/tt8267604/ [not yet found]
+Dir. Nadine Labaki (121 min)
+
+---------
+
+Wadjda [Saudi Arabia, 2013]
+https://tv.apple.com/us/movie/wadjda/umc.cmc.2ubtnltuu7vvci4dsogvud64z [Apple TV]
+Dir. Haifaa al-Mansour (98 min)
+
+---------
+---------
+
 # Palestinian Cinema
 
 ---------
 
 Little Wars (1982)
-https://vimeo.com/447295097)
+https://vimeo.com/447295097
 Maroun Bagdadi
 
 ----------
