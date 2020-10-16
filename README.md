@@ -1644,6 +1644,10 @@ Udju Azul di Yonta - The Blue Eyes of Yonta (1992)
 https://www.youtube.com/watch?v=g8fmnwOByrM
 Flora Gomes
 
+Desert Hearts (1985)
+https://ok.ru/video/946489133569
+Donna Deitch
+
 ---------------
 ---------------
 
