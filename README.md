@@ -1966,3 +1966,107 @@ Jonathan Glazer
 (an extraordinary soundtrack but I can't find a better source for this currently)
 
 -------
+-------
+
+# Contemporary Video Art
+
+-------
+
+Paul Rooney - Lost High Street, 2008
+
+https://www.thewire.co.uk/video/paul-rooney_exclusive-video (long excerpt)
+
+It’s a good life on the buses. Ask Paul Rooney, whose alter-ego revisits his alma mater via the tourist route on an open-topped double-decker in this newly commissioned video installation, which plays on the sort of wood-finish screen every des-res aspired to in the three-channel age.
+
+Like a VHS version of Lindsay Anderson’s ‘The White Bus’, which sent ‘A Taste Of Honey’ writer Shelagh Delaney’s own imagined self on an impressionistic voyage round her native Salford, Rooney’s journey isn’t so much into some urban heart of darkness, but visits a leaf-lined, heritage-industry limbo where the ghosts of wartime spies lurk.
+
+Unlike ‘The White Bus,’ there are no stopping off points in ‘Lost High Street.’ Rather Rooney is trapped on some Sisyphean Groundhog Day, sentenced to traverse the streets of Edinburgh forever, undercover and in danger of being shot by both sides, whoever they might be.
+
+Such first-person interior monologues are the raison-detre of Rooney, who last graced MAP’s pages with ‘Lucy Over Lancashire,’ a 12-inch single on which an imagined sprite regaled her lusty tale of life and death trapped within the record’s grooves. A more formal narrative is contained in ‘Failing That,’ the published text that formed part of his recent ‘La Decision Doypack’ show at Matt’s Gallery in London. Even more ambitious, ‘The Pendular Destabiliser Show,’ a new sound-based work at Wolverhampton Art Gallery, imagines two Paris ’68 radicals arguing through a hole in the wall.
+
+‘Lost High Street’ is more personal, a nostalgic wander through old haunts Rooney’s character can no longer visit, but only see life through a lens as if occupying some shaky-handed DIY Cold War flick. Its spindly punk theme song, ‘performed’ by tour guide Aileen, could be a kindred spirit of Lucy’s, and suggests a kind of Rooney-verse, parallel or not, in which all his characters will eventually connect up to create some kind of six degrees of separation soap opera.
+
+
+
+Tacita Dean - Film, 2011
+
+https://www.youtube.com/watch?v=IoKA4ihsrEw
+
+https://www.youtube.com/watch?v=lefvPUYGvi0
+
+Dean’s most totemic work is not video art at all but [a monument to celluloid proper](https://www.theguardian.com/artanddesign/2011/oct/10/tacita-dean-film-review). It was prompted by the closure of the UK’s last film production lab and the international campaign she then launched to save her medium, 16mm. Created for the Turbine Hall in London’s Tate Modern, its shifting imagery projected on to a 13-metre vertical screen deftly explores film’s unique physicality
+
+.
+
+Omer Fast - 5000 Feet Is the Best, 2011
+
+https://vimeo.com/34050994 (excerpt but high quality)
+
+https://www.youtube.com/watch?v=K-8dW1dg7KY (full thing but lower quality)
+
+An interview with a US air force drone pilot, who drops bombs remotely via what he sees on a screen, unites Fast’s cinematic hall of mirrors. This source material is reimagined via docudrama and Tarantino-esque shaggy dog stories, until fact and fiction blur. Fast strikes at how film itself – from action movies to news footage – skews our perception of reality.
+
+
+
+Ed Atkins - Us Dead Talk Love, 2012
+
+https://www.youtube.com/watch?v=yVMN0Y6rM-0&feature=emb_title
+
+Two talking cadavers, digitally rendered in uncanny high-definition, discuss violence, sex, depression, narcissism and male fragility. The [British artist](https://www.theguardian.com/culture/2015/may/16/ed-atkins-performance-capture-manchester-international-festival-mif)’s video is a biting satire on the alienating nature of our media-saturated age, full of sad, dead people, in which emotions are merely performed for the algorithms that control us.
+
+Also by Atkins:
+
+* [Warm, Warm, Warm Spring Mouths (2013)](https://ubu.com/film/atkins_warm.html)
+
+- [Tomorrow Never Knows (2013)](https://ubu.com/film/atkins_tomorrow.html)
+- [Material Witness OR A Liquid Cop (2012)](https://ubu.com/film/atkins_material.html)
+- [Depression (2012)](https://ubu.com/film/atkins_depression.html)
+- [Delivery To The Following Recipient Failed Permanently (2011)](https://ubu.com/film/atkins_delivery.html)
+- [Death Mask 2: The Scent (2010)](https://ubu.com/film/atkins_death2.html)
+- [Death Mask 3 (2011)](https://ubu.com/film/atkins_death3.html)
+
+
+
+Hito Steyerl - How Not to Be Seen: A Fucking Didactic Educational .MOV File, 2013
+
+https://www.youtube.com/watch?v=LE3RlrVEyuo
+
+In the 1950s, the US military built targets in the Californian desert with which to calibrate aerial photography. So began – the narrator in [this faux-instructional video](https://www.theguardian.com/artanddesign/2014/mar/13/hito-steyerl-video-installations-ica-london) tells us – our hyper-surveilled age. Mixing original footage, animation and green-screen technology, Steyerl exposes the links between tech, warfare and capitalism.
+
+
+
+Pierre Huyghe - Untitled (Human Mask), 2014
+
+https://vimeo.com/408887718
+
+Huyghe’s [deeply unsettling video](https://www.theguardian.com/artanddesign/2014/sep/17/pierre-huyghes-exhibition-hauser-and-wirth-encounters-review) confronts our century’s most pressing question mark: the post-human world. Partly shot using a drone in the Fukushima nuclear disaster zone, it features a fur-covered, masked lone survivor, slowly revealed to be a monkey, abandoned in a restaurant to navigate this new existence.
+
+
+
+William Kentridge - More Sweetly Play the Dance, 2015
+
+https://youtu.be/pA7uob5PIPw
+
+An animated death dance, in which Africa’s victims of disasters both natural and political pass by, sounds a sombre prospect. Yet surprisingly, this work, projected across floor-to-ceiling screens lined up in a 40-metre semicircle, is a joyous musical event, a monumental ode to resilience in the face of horror.
+
+
+
+Arthur Jafa - Love Is the Message, the Message Is Death, 2018
+
+[Jafa](https://www.theguardian.com/artanddesign/arthur-jafa)’s searing indictment of US oppression debuted shortly after Trump’s inauguration. It is a supercharged seven minutes, with footage of black icons, police brutality and the struggles ordinary black people face daily, set to Kanye West’s Ultralight Beam. Screened simultaneously by 13 art institutions this year as the BLM movement gathered pace, its power grows and grows
+
+See also:
+
+https://youtu.be/C89eNqpK-_k
+
+Also by Jafa:
+
+https://ubu.com/film/jafa_message.html
+
+https://ubu.com/film/jafa_aking.html
+
+https://ubu.com/film/jafa_hillsonga.html
+
+https://ubu.com/film/jafa_dreams.html
+
+https://ubu.com/film/jafa_deshotten.html
