@@ -1973,6 +1973,22 @@ Jonathan Glazer
 
 -------
 
+Yael Bartana - ...and Europe will be Stunned, 2007-11
+
+https://www.youtube.com/watch?v=EMG-Vk39m8M
+
+In an empty stadium, a fresh-faced Jewish leader calls 3 million Jews to return to Poland, the centre of Holocaust exterminations, setting the provocative, wry tone for [Bartana](https://www.theguardian.com/artanddesign/yael-bartana)’s three-part stunner. It explores a queasy stew of nationalistic fever dreams and cultural trauma, with shades of Nazism, the Soviet era and the Israel-Palestine conflict.
+
+
+
+Christian Marclay - The Clock, 2010
+
+https://kottke.org/13/06/about-an-hour-of-christian-marclays-the-clock
+
+Tick-tocking through 70 years of celluloid, [Marclay splices together thousands](https://www.theguardian.com/artanddesign/2018/sep/10/christian-marclay-the-clock-tate-modern-london) of Hollywood, arthouse film and TV clips, all featuring clocks and watches, each marking a different minute of the day. The film plays in museums around the world, which must stay open for 24 hours so the work can be shown synced to real time.
+
+
+
 Paul Rooney - Lost High Street, 2008
 
 https://www.thewire.co.uk/video/paul-rooney_exclusive-video (long excerpt)
