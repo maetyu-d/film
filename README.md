@@ -23,6 +23,45 @@ Current contents:
 ---------
 ---------
 
+# The Story of Film: An Odyssey
+
+A good starting point for film in general is:
+
+The Story of Film: An Odyssey is a 2011 British documentary film about the history of film, presented on television in 15 one-hour chapters with a total length of over 900 minutes. It was directed and narrated by Mark Cousins, a film critic from Northern Ireland, based on his 2004 book The Story of Film.
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/01F47FB5?bcast=69954162
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/01F861FF?bcast=70402947
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/01FA00C2?bcast=70723825
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/02018367?bcast=71173277
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/0202F7D8?bcast=71465496
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/02073A9C?bcast=71865936
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/020B68E4?bcast=72210055
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/020FC668?bcast=72660873
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/0214129A?bcast=73003027
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/021AB4E9?bcast=73400651
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/021B6872?bcast=73794411
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/021F6C68?bcast=74135539
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/0222E743?bcast=74474573
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/0225B737?bcast=74870877
+
+https://learningonscreen.ac.uk/ondemand/index.php/prog/0228D423?bcast=75348316
+
+---------
+---------
+
 # D. Starr's Middle Eastern Cinema syllabus at Cornell (NES 2793)
 
 This course offers an introduction to films produced in the Middle East. In this class we will
