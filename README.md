@@ -4,6 +4,7 @@ Thanks to: Culture Art Society, Exmilitai, the Film Space group, Shoma A. Chatte
 
 Current contents:
 
+* [The Story of Film: An Odyssey](https://github.com/matdwlv/film/blob/master/README.md#the-story-of-film-an-odyssey)
 * [D. Starr's Middle Eastern Cinema Syllabus](https://github.com/matdwlv/film/blob/master/README.md#d-starrs-middle-eastern-cinema-syllabus-at-cornell-nes-2793)
 * [Palestinian Cinema](https://github.com/matdwlv/film/blob/master/README.md#palestinian-cinema)
 * [Soviet Era and Eastern European Sci-Fi](https://github.com/matdwlv/film/blob/master/README.md#soviet-era-and-eastern-european-sci-fi)
