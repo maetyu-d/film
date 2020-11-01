@@ -25,38 +25,53 @@ Current contents:
 
 # The Story of Film: An Odyssey
 
-A good starting point for film in general is:
+Not necessarily balanced, but a good starting point for film in general is:
 
 The Story of Film: An Odyssey is a 2011 British documentary film about the history of film, presented on television in 15 one-hour chapters with a total length of over 900 minutes. It was directed and narrated by Mark Cousins, a film critic from Northern Ireland, based on his 2004 book The Story of Film.
 
+Episode 1 - Birth of the Cinema
 https://learningonscreen.ac.uk/ondemand/index.php/prog/01F47FB5?bcast=69954162
 
+Episode 2 - The Hollywood Dream
 https://learningonscreen.ac.uk/ondemand/index.php/prog/01F861FF?bcast=70402947
 
+Episode 3 - The Golden Age of World Cinema
 https://learningonscreen.ac.uk/ondemand/index.php/prog/01FA00C2?bcast=70723825
 
+Episode 4 - The Arrival of Sound
 https://learningonscreen.ac.uk/ondemand/index.php/prog/02018367?bcast=71173277
 
+Episode 5 - Post-War Cinema
 https://learningonscreen.ac.uk/ondemand/index.php/prog/0202F7D8?bcast=71465496
 
+Episode 6 - Sex & Melodrama
 https://learningonscreen.ac.uk/ondemand/index.php/prog/02073A9C?bcast=71865936
 
+Episode 7 - European New Wave
 https://learningonscreen.ac.uk/ondemand/index.php/prog/020B68E4?bcast=72210055
 
+Episode 8 - New Directors, New Form
 https://learningonscreen.ac.uk/ondemand/index.php/prog/020FC668?bcast=72660873
 
+Episode 9 - American Cinema of the 70s
 https://learningonscreen.ac.uk/ondemand/index.php/prog/0214129A?bcast=73003027
 
+Episode 10 - Movies to Change the World
 https://learningonscreen.ac.uk/ondemand/index.php/prog/021AB4E9?bcast=73400651
 
+Episode 11 - The Arrival of Multiplexes and Asian Mainstream
 https://learningonscreen.ac.uk/ondemand/index.php/prog/021B6872?bcast=73794411
 
+Episode 12 - Fight the Power: Protest in Film
 https://learningonscreen.ac.uk/ondemand/index.php/prog/021F6C68?bcast=74135539
 
+Episode 13 - New Boundaries: World Cinema in Africa, Asia & Latin America
 https://learningonscreen.ac.uk/ondemand/index.php/prog/0222E743?bcast=74474573
 
+Episode 14 - New American Independents & The Digital Revolution
 https://learningonscreen.ac.uk/ondemand/index.php/prog/0225B737?bcast=74870877
 
+Episode 15 - Cinema Today and the Future
 https://learningonscreen.ac.uk/ondemand/index.php/prog/0228D423?bcast=75348316
 
 ---------
