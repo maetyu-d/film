@@ -29,6 +29,8 @@ Not necessarily balanced, but a good starting point for film in general is:
 
 The Story of Film: An Odyssey is a 2011 British documentary film about the history of film, presented on television in 15 one-hour chapters with a total length of over 900 minutes. It was directed and narrated by Mark Cousins, a film critic from Northern Ireland, based on his 2004 book The Story of Film.
 
+Filmography here: https://en.wikipedia.org/wiki/The_Story_of_Film:_An_Odyssey#List_of_episodes 
+
 Episode 1 - Birth of the Cinema
 https://learningonscreen.ac.uk/ondemand/index.php/prog/01F47FB5?bcast=69954162
 
