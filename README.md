@@ -545,7 +545,7 @@ Fallen Angels Paradise (1999)
 https://trakt.tv/movies/fallen-angels-paradise-2000
 Oussama Fawzi
 
-A formerly successful man dies then his semi-crazy daughter makes arrangements while his street thug friends take the corpse out for one last night.
+A formerly successful man dies then his unstable daughter makes arrangements while his street thug friends take the corpse out for one last night.
 
 -----------
 
